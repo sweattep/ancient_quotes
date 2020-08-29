@@ -11,3 +11,17 @@
 >The tenth hindrance is ignorance. When all other difficulties are conquered this will even remain, the thorn in the flesh of the wise and good, the last enemy and the bitterest foe of man.
 
 >Exercise self-control at thy meals, and take upon thyself some duties that will exercise thy abilities and make thee useful to thy fellow-men. In following this advice thou wilt prolong thy life.
+
+>It is easy to hate and it is difficult to love. This is how the whole scheme of things works. All good things are difficult to achieve; and bad things are very easy to get.
+
+>The superior man understands what is right; the inferior man understands what will sell.
+
+>Speak the truth, do not yield to anger; give, if thou art asked for little; by these three steps thou wilt go near the gods.
+
+>If I am walking with two other men, each of them will serve as my teacher. I will pick out the good points of the one and imitate them, and the bad points of the other and correct them in myself.
+
+>To see and listen to the wicked is already the beginning of wickedness.
+
+>When we see persons of worth, we should think of equaling them; when we see persons of a contrary character, we should turn inwards and examine ourselves.
+
+>He who acts with a constant view to his own advantage will be much murmured against.
