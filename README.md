@@ -14,7 +14,9 @@
 
 >It is easy to hate and it is difficult to love. This is how the whole scheme of things works. All good things are difficult to achieve; and bad things are very easy to get.
 
->The superior man understands what is right; the inferior man understands what will sell.
+>The superior man understands what is right; the inferior man understands what will sell
+
+>The virtuous man is driven by responsibility, the non-virtuous man is driven by profit
 
 >Speak the truth, do not yield to anger; give, if thou art asked for little; by these three steps thou wilt go near the gods.
 
@@ -25,3 +27,7 @@
 >When we see persons of worth, we should think of equaling them; when we see persons of a contrary character, we should turn inwards and examine ourselves.
 
 >He who acts with a constant view to his own advantage will be much murmured against.
+
+>I do not open up the truth to one who is not eager to get knowledge, nor help out any one who is not anxious to explain himself. When I have presented one corner of a subject to any one, and he cannot from it learn the other three, I do not repeat my lesson.
+
+>The superior man does what is proper to the station in which he is; he does not desire to go beyond this. In a position of wealth and honor, he does what is proper to a position of wealth and honor. In a poor and low position, he does what is proper to a poor and low position. Situated among barbarous tribes, he does what is proper to a situation among barbarous tribes. In a position of sorrow and difficulty, he does what is proper to a position of sorrow and difficulty. The superior man can find himself in no situation in which he is not himself. In a high situation, he does not treat with contempt his inferiors. In a low situation, he does not court the favor of his superiors. He rectifies himself, and seeks for nothing from others, so that he has no dissatisfactions. He does not murmur against Heaven, nor grumble against men. Thus it is that the superior man is quiet and calm, waiting for the appointments of Heaven, while the mean man walks in dangerous paths, looking for lucky occurrences.
