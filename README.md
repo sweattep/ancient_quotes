@@ -1,3 +1,5 @@
+>Those who will rise early and are late to sit down eating bread, in sorrows, are worthless, so he will give his beloved ones sleep.
+
 >The extinction of evil desire is the highest religion
 
 >He whose wickedness is very great brings himself down to that state where his enemy wishes him to be. He himself is his greatest enemy. Thus a creeper destroys the life of a tree on which it finds support.
