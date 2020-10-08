@@ -35,4 +35,6 @@
 >The superior man does what is proper to the station in which he is; he does not desire to go beyond this. In a position of wealth and honor, he does what is proper to a position of wealth and honor. In a poor and low position, he does what is proper to a poor and low position. Situated among barbarous tribes, he does what is proper to a situation among barbarous tribes. In a position of sorrow and difficulty, he does what is proper to a position of sorrow and difficulty. The superior man can find himself in no situation in which he is not himself. In a high situation, he does not treat with contempt his inferiors. In a low situation, he does not court the favor of his superiors. He rectifies himself, and seeks for nothing from others, so that he has no dissatisfactions. He does not murmur against Heaven, nor grumble against men. Thus it is that the superior man is quiet and calm, waiting for the appointments of Heaven, while the mean man walks in dangerous paths, looking for lucky occurrences.
 
 > A whole army may be robbed of its spirit; a commander-in-chief may be robbed of his presence of mind.
+
+>It is the example of other people that is our undoing; let us merely separate ourselves from the crowd, and we shall be made whole.
     
