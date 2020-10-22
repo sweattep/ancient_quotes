@@ -41,3 +41,5 @@
 >Strengthen your drooping arms, and steady your tottering knees. Say to the fainthearted, "Be strong and unafraid! Here is your God; he will come with vengeance; with God's retribution he will come and save you."
 
 >Death and life are in the power of the tongue, and he that loves it will eat from its fruit.
+
+>Because a man walks in an image and he fades away like a vapor; he lays down treasures and does not know for whom he gathered them.        
