@@ -39,3 +39,5 @@
 >It is the example of other people that is our undoing; let us merely separate ourselves from the crowd, and we shall be made whole.
     
 >Strengthen your drooping arms, and steady your tottering knees. Say to the fainthearted, "Be strong and unafraid! Here is your God; he will come with vengeance; with God's retribution he will come and save you."
+
+>Death and life are in the power of the tongue, and he that loves it will eat from its fruit.
