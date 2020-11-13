@@ -43,3 +43,5 @@
 >Death and life are in the power of the tongue, and he that loves it will eat from its fruit.
 
 >Because a man walks in an image and he fades away like a vapor; he lays down treasures and does not know for whom he gathered them.        
+
+>I also gave them laws that were not good and rulings by which they could not live; and I let them become defiled by their own gifts
