@@ -47,3 +47,5 @@
 >I also gave them laws that were not good and rulings by which they could not live; and I let them become defiled by their own gifts
 
 >Pure and undefiled religion before our God and Father is this: to care for orphans and widows in their distress, and to keep oneself from being polluted by the world
+
+>I hate two-faced people, but I love your teachings.
