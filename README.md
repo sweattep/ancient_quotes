@@ -51,3 +51,5 @@
 >Pure and undefiled religion before our God and Father is this: to care for orphans and widows in their distress, and to keep oneself from being polluted by the world
 
 >I hate two-faced people, but I love your teachings.
+
+>Behold, if you do right, I accept it, and if you will not do right, sin lies in wait before the door; you are going to be converted to it and it will have authority over you.
