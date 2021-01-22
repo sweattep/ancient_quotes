@@ -53,3 +53,7 @@
 >I hate two-faced people, but I love your teachings.
 
 >Behold, if you do right, I accept it, and if you will not do right, sin lies in wait before the door; you are going to be converted to it and it will have authority over you.
+
+>You will not be able to stand before your enemies until you remove what is contaminating you.
+
+>I call heaven and earth as witnesses against you today that I have set before you life and death, blessing and cursing. Therefore choose life, so that you and your descendants may live
