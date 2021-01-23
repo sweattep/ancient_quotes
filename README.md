@@ -57,3 +57,5 @@
 >You will not be able to stand before your enemies until you remove what is contaminating you.
 
 >I call heaven and earth as witnesses against you today that I have set before you life and death, blessing and cursing. Therefore choose life, so that you and your descendants may live
+
+>Should the living seek guidance from the dead?
