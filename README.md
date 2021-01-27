@@ -59,3 +59,5 @@
 >I call heaven and earth as witnesses against you today that I have set before you life and death, blessing and cursing. Therefore choose life, so that you and your descendants may live
 
 >Should the living seek guidance from the dead?
+
+>Beware of him, and obey his voice, provoke him not; for he will not pardon your transgressions: for My name is in him.
