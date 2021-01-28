@@ -63,3 +63,5 @@
 >Beware of him, and obey his voice, provoke him not; for he will not pardon your transgressions: for My name is in him.
 
 >For cetain individuals, the ones written about long ago as being meant for this condemnation, have wormed their way in
+
+>A man will seize one of his brothers in his father's house, and say, "You have a cloak, you be our leader; take charge of this heap of ruins!" But in that day he will cry out, "I have no remedy. I have no food or clothing in my house; do not make me the leader of the people."
