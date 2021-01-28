@@ -61,3 +61,5 @@
 >Should the living seek guidance from the dead?
 
 >Beware of him, and obey his voice, provoke him not; for he will not pardon your transgressions: for My name is in him.
+
+>For cetain individuals, the ones written about long ago as being meant for this condemnation, have wormed their way in
