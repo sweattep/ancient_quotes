@@ -67,3 +67,7 @@
 >For cetain individuals, the ones written about long ago as being meant for this condemnation, have wormed their way in
 
 >A man will seize one of his brothers in his father's house, and say, "You have a cloak, you be our leader; take charge of this heap of ruins!" But in that day he will cry out, "I have no remedy. I have no food or clothing in my house; do not make me the leader of the people."
+
+>How long must I wrestle in my soul, with sorrow in my heart each day? How long will my enemy dominate me?
+
+>So I took all this to heart and concluded that the righteous and the wise, as well as their deeds, are in God's hands. Man does not know what lies ahead, whether love or hate.
