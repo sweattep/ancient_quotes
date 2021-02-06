@@ -73,3 +73,7 @@
 >So I took all this to heart and concluded that the righteous and the wise, as well as their deeds, are in God's hands. Man does not know what lies ahead, whether love or hate.
 
 >But who can endure the day of His coming? And who can stand when He appears? For He will be like a refiner’s fire, like a launderer's soap.
+
+>Gray hair is a crown of glory; it is attained along the path of righteousness. 
+
+>He who is slow to anger is better than a warrior, and he who controls his temper is greater than one who captures a city.
