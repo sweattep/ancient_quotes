@@ -77,3 +77,5 @@
 >Gray hair is a crown of glory; it is attained along the path of righteousness. 
 
 >He who is slow to anger is better than a warrior, and he who controls his temper is greater than one who captures a city.
+
+>Even to your old age and gray hairs I am he, I am he who will sustain you. I have made you and I will carry you; I will sustain you and I will rescue you
