@@ -81,3 +81,5 @@
 >Even to your old age and gray hairs I am he, I am he who will sustain you. I have made you and I will carry you; I will sustain you and I will rescue you
 
 >The sacrifices of God are a broken spirit. A broken and contrite heart, O God, you will not despise.
+
+>God, with his affliction, delivers the afflicted; and he gets their attention by pressing on them.
