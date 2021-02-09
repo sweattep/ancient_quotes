@@ -83,3 +83,5 @@
 >The sacrifices of God are a broken spirit. A broken and contrite heart, O God, you will not despise.
 
 >God, with his affliction, delivers the afflicted; and he gets their attention by pressing on them.
+
+>all the earth will be consumed by the fire of my jealousy
