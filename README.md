@@ -85,3 +85,5 @@
 >God, with his affliction, delivers the afflicted; and he gets their attention by pressing on them.
 
 >all the earth will be consumed by the fire of my jealousy
+
+>So He will repay according to their deeds: fury to His enemies, retribution to His foes, and recompense to the islands.
