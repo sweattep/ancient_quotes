@@ -95,3 +95,5 @@
 >Your wickedness can affect only others like you, and your righteousness only other human beings.
 
 >If he were to take back man's heart to himself, if he gathered to himself his spirit and breath; all flesh would instantly perish, everyone would return to dust.
+
+>Someone who is already wise will hear and learn still more; someone who already understands will gain the ability to counsel well; he will understand proverbs, obscure expressions, the sayings and riddles of the wise.
