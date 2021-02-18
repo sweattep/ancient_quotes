@@ -89,3 +89,5 @@
 >So He will repay according to their deeds: fury to His enemies, retribution to His foes, and recompense to the islands.
 
 >You will run from a lion, only to meet a bear. You will escape to your house, rest your hand on the wall, and be bitten by a snake.
+
+>For I tell you, unless your righteousness is far greater than that of the teachers and separated ones, you will certainly not enter the Kingdom of Heaven!
