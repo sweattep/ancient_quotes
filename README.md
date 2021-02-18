@@ -91,3 +91,7 @@
 >You will run from a lion, only to meet a bear. You will escape to your house, rest your hand on the wall, and be bitten by a snake.
 
 >For I tell you, unless your righteousness is far greater than that of the teachers and separated ones, you will certainly not enter the Kingdom of Heaven!
+
+>Your wickedness can affect only others like you, and your righteousness only other human beings.
+
+>If he were to take back man's heart to himself, if he gathered to himself his spirit and breath; all flesh would instantly perish, everyone would return to dust.
