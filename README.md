@@ -87,3 +87,5 @@
 >all the earth will be consumed by the fire of my jealousy
 
 >So He will repay according to their deeds: fury to His enemies, retribution to His foes, and recompense to the islands.
+
+>You will run from a lion, only to meet a bear. You will escape to your house, rest your hand on the wall, and be bitten by a snake.
