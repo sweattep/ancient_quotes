@@ -97,3 +97,7 @@
 >If he were to take back man's heart to himself, if he gathered to himself his spirit and breath; all flesh would instantly perish, everyone would return to dust.
 
 >Someone who is already wise will hear and learn still more; someone who already understands will gain the ability to counsel well; he will understand proverbs, obscure expressions, the sayings and riddles of the wise.
+
+>Glean from rich fields, and the armies will have enough to eat
+
+>When you cut your vineyard, you do not glean behind you; it is for the sojourner, for the fatherless, and for the widow;
