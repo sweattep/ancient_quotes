@@ -101,3 +101,5 @@
 >Glean from rich fields, and the armies will have enough to eat
 
 >When you cut your vineyard, you do not glean behind you; it is for the sojourner, for the fatherless, and for the widow;
+
+>The one who denies justice to a resident alien, a fatherless child, or a widow is cursed. And all the people will say, Amen!
