@@ -90,6 +90,9 @@
 
 >You will run from a lion, only to meet a bear. You will escape to your house, rest your hand on the wall, and be bitten by a snake.
 
+>No discipline seems enjoyable at the time, but painful. Later on, however, it yields a harvest of righteousness and peace to those who have been trained by it.
+Therefore strengthen your limp hands and weak knees.
+
 >For I tell you, unless your righteousness is far greater than that of the teachers and separated ones, you will certainly not enter the Kingdom of Heaven!
 
 >Your wickedness can affect only others like you, and your righteousness only other human beings.
