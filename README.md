@@ -106,3 +106,5 @@ Therefore strengthen your limp hands and weak knees.
 >When you cut your vineyard, you do not glean behind you; it is for the sojourner, for the fatherless, and for the widow;
 
 >The one who denies justice to a resident alien, a fatherless child, or a widow is cursed. And all the people will say, Amen!
+
+>But a man, despite his wealth, cannot endure; he is like the beasts that perish. This is the fate of the self-confident and their followers who endorse their sayings.
