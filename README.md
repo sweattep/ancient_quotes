@@ -108,3 +108,5 @@ Therefore strengthen your limp hands and weak knees.
 >The one who denies justice to a resident alien, a fatherless child, or a widow is cursed. And all the people will say, Amen!
 
 >But a man, despite his wealth, cannot endure; he is like the beasts that perish. This is the fate of the self-confident and their followers who endorse their sayings.
+
+>Now, son of man, take a sharp sword and use it as a barber's razor to shave your head and your beard. Then take a set of scales and divide up the hair.
