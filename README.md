@@ -112,3 +112,5 @@ Therefore strengthen your limp hands and weak knees.
 >Now, son of man, take a sharp sword and use it as a barber's razor to shave your head and your beard. Then take a set of scales and divide up the hair.
 
 >If you lay your hand on him, you won't forget the fight, and you'll never do it again!     
+
+>You clothed me with skin and flesh, and you knit my bones and sinews together.
