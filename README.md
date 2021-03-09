@@ -110,3 +110,5 @@ Therefore strengthen your limp hands and weak knees.
 >But a man, despite his wealth, cannot endure; he is like the beasts that perish. This is the fate of the self-confident and their followers who endorse their sayings.
 
 >Now, son of man, take a sharp sword and use it as a barber's razor to shave your head and your beard. Then take a set of scales and divide up the hair.
+
+>If you lay your hand on him, you won't forget the fight, and you'll never do it again!     
