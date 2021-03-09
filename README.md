@@ -114,3 +114,5 @@ Therefore strengthen your limp hands and weak knees.
 >If you lay your hand on him, you won't forget the fight, and you'll never do it again!     
 
 >You clothed me with skin and flesh, and you knit my bones and sinews together.
+
+>Then, when your flesh and bones have shrunk, at the end of your life, you would moan, "How I hated discipline! My whole being despised reproof, I ignored what my teachers said, I didn't listen to my instructors"
