@@ -116,3 +116,5 @@ Therefore strengthen your limp hands and weak knees.
 >You clothed me with skin and flesh, and you knit my bones and sinews together.
 
 >Then, when your flesh and bones have shrunk, at the end of your life, you would moan, "How I hated discipline! My whole being despised reproof, I ignored what my teachers said, I didn't listen to my instructors"
+
+>I looked, and tendons and flesh appeared on them and skin covered them, but there was no breath in them.
