@@ -123,3 +123,5 @@ Therefore strengthen your limp hands and weak knees.
 
 >Ordinary folks are merely a breath and important people a sham; if you lay them on the balance-scale, the go up - both together are lighter than nothing.
 >To you, God, in Tziyon, silence is praise; and vows to you are to be fulfilled
+
+>Be careful; turn away from wrongdoing; for because of this, you have been tested by affliction
