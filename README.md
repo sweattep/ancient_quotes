@@ -121,4 +121,5 @@ Therefore strengthen your limp hands and weak knees.
 
 >The idols of the nations are mere gold and silver, made by human hands. They have mouths, but they can't speak; they have eyes, but they can't see; they have ears, but they can't listen; and they have no breath in the mouths; The people who make them will become like them, along with everyone who trusts in them.
 
+>Ordinary folks are merely a breath and important people a sham; if you lay them on the balance-scale, the go up - both together are lighter than nothing.
 >To you, God, in Tziyon, silence is praise; and vows to you are to be fulfilled
