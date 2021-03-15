@@ -125,3 +125,5 @@ Therefore strengthen your limp hands and weak knees.
 >To you, God, in Tziyon, silence is praise; and vows to you are to be fulfilled
 
 >Be careful; turn away from wrongdoing; for because of this, you have been tested by affliction
+
+>At that time Michael, the great prince who stands watch over your people, will rise up. There will be a time of distress, the likes of which will not have occurred from the beginning of nations until that time. But at that time your people—everyone whose name is found written in the book—will be delivered. And many who sleep in the dust of the earth will awake, some to everlasting life, but others to shame and everlasting contempt. Then the wise will shine like the brightness of the heavens, and those who lead many to righteousness will shine like the stars forever and ever.
