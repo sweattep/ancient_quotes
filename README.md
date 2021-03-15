@@ -126,4 +126,9 @@ Therefore strengthen your limp hands and weak knees.
 
 >Be careful; turn away from wrongdoing; for because of this, you have been tested by affliction
 
->At that time Michael, the great prince who stands watch over your people, will rise up. There will be a time of distress, the likes of which will not have occurred from the beginning of nations until that time. But at that time your people—everyone whose name is found written in the book—will be delivered. And many who sleep in the dust of the earth will awake, some to everlasting life, but others to shame and everlasting contempt. Then the wise will shine like the brightness of the heavens, and those who lead many to righteousness will shine like the stars forever and ever.
+>At that time Michael, the great prince who stands watch over your people, will rise up. There will be a time of distress, the likes of which will not have occurred from the beginning of nations until that time. But at that time your people—everyone whose name is found written in the book—will be delivered. And many who sleep in the dust of the earth will awake, some to everlasting life, but others to shame and everlasting contempt. Then the 
+will shine like the brightness of the heavens, and those who lead many to righteousness will shine like the stars forever and ever.
+
+>All who live on earth are counted as nothing. He does what he wishes with the army of heaven and with those living on earth. No one can hold back his hand or ask him, "What are you doing?"
+
+>Nevertheless I will tell you what is written in the Book of Truth. There is no one standing with me against them except Michael your prince
