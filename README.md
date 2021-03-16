@@ -144,3 +144,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Wisdom reacheth from one end to another mightily: and sweetly doth she order all things. I loved her, and sought her out from my youth, I desired to make her my spouse, and I was a lover of her beauty. In that she is conversant with God, she magnifieth her nobility: yea, the Lord of all things himself loved her. For she is privy to the mysteries of the knowledge of God, and a lover of his works. 
 
 >If riches be a possession to be desired in this life; what is richer than wisdom, that worketh all things? And if prudence work; who of all that are is a more cunning workman than she? And if a man love righteousness her labours are virtues: for she teacheth temperance and prudence, justice and fortitude: which are such things, as men can have nothing more profitable in their life. If a man desire much experience, she knoweth things of old, and conjectureth aright what is to come: she knoweth the subtilties of speeches, and can expound dark sentences: she foreseeth signs and wonders, and the events of seasons and times.
+
+>Don't think I have come to abolish the Torah or the Prophets. I have come not to abolish but to complete.
+
+>This symbolizes the present age and indicates that the conscience of the person performing the service cannot be brought to the goal by the gifts and sacrifices he offers.
