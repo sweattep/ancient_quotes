@@ -132,3 +132,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >All who live on earth are counted as nothing. He does what he wishes with the army of heaven and with those living on earth. No one can hold back his hand or ask him, "What are you doing?"
 
 >Nevertheless I will tell you what is written in the Book of Truth. There is no one standing with me against them except Michael your prince
+
+>Your heart was lifted up because of your beauty; you corrupted your wisdom by reason of your splendor. I cast you to the ground; I put you before kings, that they may see you.
