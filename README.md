@@ -133,7 +133,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Nevertheless I will tell you what is written in the Book of Truth. There is no one standing with me against them except Michael your prince
 
->Your heart was lifted up because of your beauty; you corrupted your wisdom by reason of your splendor. I cast you to the ground; I put you before kings, that they may see you.
+>Your heart was lifted up because of your beauty; you corrupted your wisdom for the sake of your splendor. But I have thrown you on the ground; before kings I have made you a spectacle.
 
 >For man made them, and he that borrowed his own spirit fashioned them: but no man can make a god like unto himself. For being mortal, he worketh a dead thing with wicked hands: for he himself is better than the things which he worshippeth: whereas he lived once, but they never. Yea, they worshipped those beasts also that are most hateful: for being compared together, some are worse than others. Neither are they beautiful, so much as to be desired in respect of beasts: but they went without the praise of God and his blessing. Therefore by the like were they punished worthily, and by the multitude of beasts tormented.
 
