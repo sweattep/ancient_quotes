@@ -153,3 +153,6 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >He answered me then, and said, Measure thou the time diligently in itself: and when thou seest part of the signs past, which I have told thee before, then shalt thou understand, that it is the very same time, wherein the Highest will begin to visit the world which he made.
 
+>But yet for this they are the less to be blamed: for they peradventure err, seeking God, and desirous to find him. For being conversant in his works they search him diligently, and believe their sight: because the things are beautiful that are seen.
+
+>Unless a man hold himself diligently in the fear of the Lord, his house shall soon be overthrown.
