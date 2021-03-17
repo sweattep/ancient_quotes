@@ -164,3 +164,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Return again to the place of judgment: for they have borne false witness against her. Wherefore all the people turned again in haste, and the elders said unto him, Come, sit down among us, and shew it us, seeing God hath given thee the honour of an elder.
 
 >For the worshipping of idols not to be named is the beginning, the cause, and the end, of all evil.
+
+>Go not after thy lusts, but refrain thyself from thine appetites.
+
+>As is the lust of an eunuch to deflower a virgin; so is he that executeth judgment with violence.
+
+>Let not the greediness of the belly nor lust of the flesh take hold of me; and give not over me thy servant into an impudent mind. Hear, O ye children, the discipline of the mouth: he that keepeth it shall never be taken in his lips.
