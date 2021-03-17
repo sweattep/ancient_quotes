@@ -151,5 +151,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >When you pass through the waters, I will be with you; and when you pass through the rivers, they will not sweep over you. When you walk through the fire, you will not be burned; the flames will not set you ablaze.
 
->Then shalt thou understand, that it is the very same time, wherein the Highest will begin to visit the world which he made.
+>He answered me then, and said, Measure thou the time diligently in itself: and when thou seest part of the signs past, which I have told thee before, then shalt thou understand, that it is the very same time, wherein the Highest will begin to visit the world which he made.
 
