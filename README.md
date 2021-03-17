@@ -157,6 +157,6 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Unless a man hold himself diligently in the fear of the Lord, his house shall soon be overthrown.
 
->Like as a whore envieth a right honest and virtuous woman:
+>Like as a whore envieth a right honest and virtuous woman: So shall righteousness hate iniquity, when she decketh herself, and shall accuse her to her face, when he cometh that shall defend him that diligently searcheth out every sin upon earth.
 
 >For by the greatness and beauty of the creatures proportionably the maker of them is seen. But yet for this they are the less to be blamed: for they peradventure err, seeking God, and desirous to find him. For being conversant in his works they search him diligently, and believe their sight: because the things are beautiful that are seen. Howbeit neither are they to be pardoned. For if they were able to know so much, that they could aim at the world; how did they not sooner find out the Lord thereof?
