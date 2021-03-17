@@ -161,4 +161,6 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >For by the greatness and beauty of the creatures proportionably the maker of them is seen. But yet for this they are the less to be blamed: for they peradventure err, seeking God, and desirous to find him. For being conversant in his works they search him diligently, and believe their sight: because the things are beautiful that are seen. Howbeit neither are they to be pardoned. For if they were able to know so much, that they could aim at the world; how did they not sooner find out the Lord thereof?
 
->Return again to the place of judgment: for they have borne false witness against her. Wherefore all the people turned again in haste, and the elders said unto him, Come, sit down among us, and shew it us, seeing God hath given thee the honour of an elder. 
+>Return again to the place of judgment: for they have borne false witness against her. Wherefore all the people turned again in haste, and the elders said unto him, Come, sit down among us, and shew it us, seeing God hath given thee the honour of an elder.
+
+>For the worshipping of idols not to be named is the beginning, the cause, and the end, of all evil.
