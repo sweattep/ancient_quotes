@@ -172,3 +172,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Let not the greediness of the belly nor lust of the flesh take hold of me; and give not over me thy servant into an impudent mind. Hear, O ye children, the discipline of the mouth: he that keepeth it shall never be taken in his lips.
 
 >The worldling nourishes his body, but the wise man nourishes his mind. He who indulges in the satisfaction of his appetites works his own destruction; but he who walks in the path will have both the salvation from evil and a prolongation of life.
+
+>How you turn things upside down! Is the potter not better than the clay? Does something made say to its maker, "He didn't make me"? Does the product say of its producer, "He has no discernment."
