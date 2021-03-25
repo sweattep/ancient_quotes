@@ -178,3 +178,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Neither consult with a woman touching her of whom she is jealous; neither with a coward in matters of war; nor with a merchant concerning exchange; nor with a buyer of selling; nor with an envious man of thankfulness; nor with an unmerciful man touching kindness; nor with the slothful for any work; nor with an hireling for a year of finishing work; nor with an idle servant of much business: hearken not unto these in any matter of counsel.
 
 >Formerly the master selected the slave; today the slave selects his master
+
+>My son, keep the flower of thine age sound; and give not thy strength to strangers. When thou hast gotten a fruitful possession through all the field, sow it with thine own seed, trusting in the goodness of thy stock. So thy race which thou leavest shall be magnified, having the confidence of their good descent.
