@@ -180,3 +180,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Formerly the master selected the slave; today the slave selects his master
 
 >My son, keep the flower of thine age sound; and give not thy strength to strangers. When thou hast gotten a fruitful possession through all the field, sow it with thine own seed, trusting in the goodness of thy stock. So thy race which thou leavest shall be magnified, having the confidence of their good descent.
+
+>And therefore they that labour labour in vain: For strangers shall reap their fruits, and spoil their goods, overthrow their houses, and take their children captives, for in captivity and famine shall they get children.
