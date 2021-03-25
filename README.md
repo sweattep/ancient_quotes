@@ -174,3 +174,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >The worldling nourishes his body, but the wise man nourishes his mind. He who indulges in the satisfaction of his appetites works his own destruction; but he who walks in the path will have both the salvation from evil and a prolongation of life.
 
 >How you turn things upside down! Is the potter not better than the clay? Does something made say to its maker, "He didn't make me"? Does the product say of its producer, "He has no discernment."
+
+>Neither consult with a woman touching her of whom she is jealous; neither with a coward in matters of war; nor with a merchant concerning exchange; nor with a buyer of selling; nor with an envious man of thankfulness; nor with an unmerciful man touching kindness; nor with the slothful for any work; nor with an hireling for a year of finishing work; nor with an idle servant of much business: hearken not unto these in any matter of counsel.
