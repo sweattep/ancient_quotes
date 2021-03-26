@@ -184,3 +184,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And therefore they that labour labour in vain: For strangers shall reap their fruits, and spoil their goods, overthrow their houses, and take their children captives, for in captivity and famine shall they get children.
 
 >For a father afflicted with untimely mourning, when he hath made an image of his child soon taken away, now honored him as a god, which was then a dead man, and delivered to those that were under him ceremonies and sacrifices. Thus in process of time an ungodly custom grown strong was kept as a law, and graven images were worshipped by the commandments of kings.
+
+>Sound sleep cometh of moderate eating: he riseth early, and his wits are with him: but the pain of watching, and choler, and pangs of the belly, are with an unsatiable man.
+
+>There was one who pleased God and was loved by him, and while living among sinners he was taken up. He was caught up lest evil change his understanding or guile deceive his soul. For the fascination of wickedness obscures what is good, and roving desire perverts the innocent mind.
