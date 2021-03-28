@@ -188,3 +188,11 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Sound sleep cometh of moderate eating: he riseth early, and his wits are with him: but the pain of watching, and choler, and pangs of the belly, are with an unsatiable man.
 
 >There was one who pleased God and was loved by him, and while living among sinners he was taken up. He was caught up lest evil change his understanding or guile deceive his soul. For the fascination of wickedness obscures what is good, and roving desire perverts the innocent mind.
+
+>Who shall set a watch before my mouth, and a seal of wisdom upon my lips, that I fall not suddenly by them, and that my tongue destroy me not?
+
+>A wicked woman abateth the courage, maketh an heavy countenance and a wounded heart: a woman that will not comfort her husband in distress maketh weak hands and feeble knees.
+
+>And I beheld, and, lo, that man waxed strong with the thousands of heaven: and when he turned his countenance to look, all the things trembled that were seen under him.
+
+>Let go from thee mortal thoughts, cast away the burdens of man, put off now the weak nature, and set aside the thoughts that are most heavy unto thee, and haste thee to flee from these times. For yet greater evils than those which thou hast seen happen shall be done hereafter. For look how much the world shall be weaker through age, so much the more shall evils increase upon them that dwell therein.
