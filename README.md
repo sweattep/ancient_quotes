@@ -204,3 +204,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >The gladness of the heart is the life of man, and the joyfulness of a man prolongeth his days. Love thine own soul, and comfort thy heart, remove sorrow far from thee: for sorrow hath killed many, and there is no profit therein.
 
 >Envy and wrath shorten the life, and carefulness bringeth age before the time. A cheerful and good heart will have a care of his meat and diet.
+
+>He created me from the beginning before the world, and I shall never fail.
