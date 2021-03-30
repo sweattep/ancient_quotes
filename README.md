@@ -198,3 +198,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Let go from thee mortal thoughts, cast away the burdens of man, put off now the weak nature, and set aside the thoughts that are most heavy unto thee, and haste thee to flee from these times. For yet greater evils than those which thou hast seen happen shall be done hereafter. For look how much the world shall be weaker through age, so much the more shall evils increase upon them that dwell therein.
 
 >What hath pride profited us: or what good hath riches with our vaunting brought us: All those things are passed away like a shadow, and as a post that hasted by; And as a ship that passeth over the waves of the water, which when it is gone by, the trace thereof cannot be found, neither the pathway of the keel in the waves; Or as when a bird hath flown through the air, there is no token of her way to be found, but the light air being beaten with the stroke of her wings, and parted with the violent noise and motion of them, is passed through, and therein afterwards no sign where she went is to be found
+
+>Give not over thy mind to heaviness, and afflict not thyself in thine own counsel. 
+
+>The gladness of the heart is the life of man, and the joyfulness of a man prolongeth his days. Love thine own soul, and comfort thy heart, remove sorrow far from thee: for sorrow hath killed many, and there is no profit therein.
+
+>Envy and wrath shorten the life, and carefulness bringeth age before the time. A cheerful and good heart will have a care of his meat and diet.
