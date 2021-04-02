@@ -206,3 +206,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Envy and wrath shorten the life, and carefulness bringeth age before the time. A cheerful and good heart will have a care of his meat and diet.
 
 >He created me from the beginning before the world, and I shall never fail.
+
+>But the midwives feared Elohim, and did not do as the sovereign of Mitsrayim commanded them, and kept the male children alive.
