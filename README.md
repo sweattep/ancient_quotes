@@ -210,3 +210,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >But the midwives feared Elohim, and did not do as the sovereign of Mitsrayim commanded them, and kept the male children alive.
 
 >Do not stand in a place of danger trusting in miracles
+
+>The man who has confidence in himself gains the confidence of others
