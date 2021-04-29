@@ -214,3 +214,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >The man who has confidence in himself gains the confidence of others
 
 >Our bodies ache during the day, and work is torture. Then at night our thoughts are troubled. It just doesn't make sense
+
+>You clothed me with skin and flesh, and knit me together with bones and sinews.
