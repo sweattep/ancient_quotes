@@ -212,3 +212,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Do not stand in a place of danger trusting in miracles
 
 >The man who has confidence in himself gains the confidence of others
+
+>Our bodies ache during the day, and work is torture. Then at night our thoughts are troubled. It just doesn't make sense
