@@ -222,3 +222,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >He that hath small understanding, and feareth God, is better than one that hath much wisdom, and transgresseth the law of the most High.
 
 >Who shall praise the most High in the grave, instead of them which live and give thanks?
+
+>Every man from his youth is given to evil; neither could they make to themselves fleshy hearts for stony.
+>
+>The alms of a man is as a signet with him, and he will keep the good deeds of man as the apple of the eye, and give repentance to his sons and daughters.
