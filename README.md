@@ -216,3 +216,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Our bodies ache during the day, and work is torture. Then at night our thoughts are troubled. It just doesn't make sense
 
 >You clothed me with skin and flesh, and knit me together with bones and sinews.
+
+>For pride is the beginning of sin, and he that hath it shall pour out abomination: and therefore the Lord brought upon them strange calamities, and overthrew them utterly.
+
+>He that hath small understanding, and feareth God, is better than one that hath much wisdom, and transgresseth the law of the most High.
+
+>Who shall praise the most High in the grave, instead of them which live and give thanks?
