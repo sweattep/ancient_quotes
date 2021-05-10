@@ -224,5 +224,11 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Who shall praise the most High in the grave, instead of them which live and give thanks?
 
 >Every man from his youth is given to evil; neither could they make to themselves fleshy hearts for stony.
->
+
 >The alms of a man is as a signet with him, and he will keep the good deeds of man as the apple of the eye, and give repentance to his sons and daughters.
+
+>They accepted none of my counsel; they despised all my reproof. So they will eat the fruit of their own way, and be filled with their own devices.
+
+>She does not consider the path of life; she does not know that her ways are unstable.
+
+>Do not hand a Servant over to his Master who has fled to you from his Master:
