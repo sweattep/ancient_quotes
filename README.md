@@ -232,3 +232,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >She does not consider the path of life; she does not know that her ways are unstable.
 
 >Do not hand a Servant over to his Master who has fled to you from his Master:
+
+>So he measured all four sides. There was a wall all around it. The wall was 875 feet long and 875 feet wide. It separated what was holy from what was unholy.
