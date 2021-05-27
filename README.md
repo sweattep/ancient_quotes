@@ -238,3 +238,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >So he measured all four sides. There was a wall all around it. The wall was 875 feet long and 875 feet wide. It separated what was holy from what was unholy.
 
 >I cannot carry this whole nation! The burden is too heavy for me! And if thus You are doing to me—please slay me; slay, if I have found grace in your eyes, and do not let me look on my affliction.
+
+>The main thing about your word is that it is true;
+>and all your just rulings last forever.
+
