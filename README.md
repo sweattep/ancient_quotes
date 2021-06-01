@@ -242,3 +242,4 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >The main thing about your word is that it is true;
 >and all your just rulings last forever.
 
+>Better to eat vegetables with people you love than to eat the finest meat where there is hate.
