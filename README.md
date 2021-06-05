@@ -243,3 +243,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >and all your just rulings last forever.
 
 >Better to eat vegetables with people you love than to eat the finest meat where there is hate.
+
+>Make sure that there is no one here today who hears these solemn demands and yet convinces himself that all will be well with him, even if he stubbornly goes his own way. That would destroy all of you, good and evil alike.
+
+>I have walked in your road without blemish. When will you come to me? I have walked in the perfection of my heart within my house.
+
+>But what could I say? For he himself sent this sickness. Now I will walk humbly throughout my years because of this anguish I have felt.
