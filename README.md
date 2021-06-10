@@ -251,3 +251,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >But what could I say? For he himself sent this sickness. Now I will walk humbly throughout my years because of this anguish I have felt.
 
 >I will run in the way of Your commandments, for You broaden my understanding.
+
+>A muddied spring or a polluted well — that's what a righteous person is who compromises with the wicked.
