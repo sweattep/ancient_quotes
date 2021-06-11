@@ -253,3 +253,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >I will run in the way of Your commandments, for You broaden my understanding.
 
 >A muddied spring or a polluted well — that's what a righteous person is who compromises with the wicked.
+
+>No discipline seems enjoyable at the time, but painful. Later on, however, it yields a harvest of righteousness and peace to those who have been trained by it. 12Therefore strengthen your limp hands and weak knees. Make straight paths for your feet, so that the lame may not be disabled, but rather healed.
