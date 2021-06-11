@@ -255,3 +255,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >A muddied spring or a polluted well — that's what a righteous person is who compromises with the wicked.
 
 >My knees give way from fasting; my body is thin and gaunt
+
+>The priest whomsoever they shall anoint shall make atonement, and whomsoever they shall consecrate to exercise the priestly office after his father; and he shall put on the linen robe, the holy garment.
+
+>I was sleeping and my heart was awake. The voice of my love who was knocking: "Open to me, my sister, my intimate, my innocent dove, for my head is filled with dew and my curls from drops of the night
+
+>Lord, my heart is not arrogant, nor do I look haughty. I do not aspire to great things, nor concern myself with things beyond my ability. Instead, I have composed and quieted myself like a weaned child with its mother; I am like a weaned child.
