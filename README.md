@@ -261,3 +261,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >I was sleeping and my heart was awake. The voice of my love who was knocking: "Open to me, my sister, my intimate, my innocent dove, for my head is filled with dew and my curls from drops of the night
 
 >Lord, my heart is not arrogant, nor do I look haughty. I do not aspire to great things, nor concern myself with things beyond my ability. Instead, I have composed and quieted myself like a weaned child with its mother; I am like a weaned child.
+
+>By slothful neglect a building will be brought low: and by idleness of the hands the house will fall to pieces.
