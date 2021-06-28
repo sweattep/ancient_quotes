@@ -265,3 +265,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >By slothful neglect a building will be brought low: and by idleness of the hands the house will fall to pieces.
 
 >And outside are fornicators, murderers, idol worshipers, the defiled, sorcerers and all seers and workers of lies.
+
+>I worked for you through the scorching heat of the day and through cold and sleepless nights.
