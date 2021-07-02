@@ -267,3 +267,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And outside are fornicators, murderers, idol worshipers, the defiled, sorcerers and all seers and workers of lies.
 
 >I worked for you through the scorching heat of the day and through cold and sleepless nights.
+
+>No Title of Nobility shall be granted by the United States: And no Person holding any Office of Profit or Trust under them, shall, without the Consent of the Congress, accept of any present, Emolument, Office, or Title, of any kind whatever, from any King, Prince, or foreign State.
