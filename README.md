@@ -269,3 +269,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >I worked for you through the scorching heat of the day and through cold and sleepless nights.
 
 >No Title of Nobility shall be granted by the United States: And no Person holding any Office of Profit or Trust under them, shall, without the Consent of the Congress, accept of any present, Emolument, Office, or Title, of any kind whatever, from any King, Prince, or foreign State.
+
+>The trees went to anoint a king over them: and they said to the olive tree: Reign thou over us. And it answered: Can I leave my fatness, which both gods and men make use of, to come to be promoted among the trees?
