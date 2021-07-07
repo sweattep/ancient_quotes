@@ -271,3 +271,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >No Title of Nobility shall be granted by the United States: And no Person holding any Office of Profit or Trust under them, shall, without the Consent of the Congress, accept of any present, Emolument, Office, or Title, of any kind whatever, from any King, Prince, or foreign State.
 
 >The trees went to anoint a king over them: and they said to the olive tree: Reign thou over us. And it answered: Can I leave my fatness, which both gods and men make use of, to come to be promoted among the trees?
+
+>I will make justice the measuring line and righteousness the level. Hail will sweep away your refuge of lies, and water will flood your hiding place. Your covenant with death will be dissolved, and your agreement with Sheol will not stand.
