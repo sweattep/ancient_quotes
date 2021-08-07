@@ -271,3 +271,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >The trees went to anoint a king over them: and they said to the olive tree: Reign thou over us. And it answered: Can I leave my fatness, which both gods and men make use of, to come to be promoted among the trees?
 
 >I will make justice the measuring line and righteousness the level. Hail will sweep away your refuge of lies, and water will flood your hiding place. Your covenant with death will be dissolved, and your agreement with Sheol will not stand.
+
+>with fasting, weeping, and lamenting tear your heart, not your garments
