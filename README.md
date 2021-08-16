@@ -273,3 +273,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >I will make justice the measuring line and righteousness the level. Hail will sweep away your refuge of lies, and water will flood your hiding place. Your covenant with death will be dissolved, and your agreement with Sheol will not stand.
 
 >with fasting, weeping, and lamenting tear your heart, not your garments
+
+>Look! They are one people with the same language for all of them, and this is only the beginning of what they will do. Nothing that they have a mind to do will be impossible for them!
