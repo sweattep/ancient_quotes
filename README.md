@@ -275,3 +275,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >with fasting, weeping, and lamenting tear your heart, not your garments
 
 >Look! They are one people with the same language for all of them, and this is only the beginning of what they will do. Nothing that they have a mind to do will be impossible for them!
+
+>And the Scribes shall continue and they shall say to the people: 'Who is the man whose heart is afraid and fainthearted? Let him return, let him go to his house, lest he will subvert the heart of his brothers as his own'.
+
+>Woe to them! for they have started aside from me: they are cowards; for they have sinned against me: yet I redeemed them, but they spoke falsehoods against me
+
+>Say to the cowardly: "Be strong; do not fear! Here is your God; vengeance is coming. God's retribution is coming; he will save you."
