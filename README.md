@@ -281,3 +281,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Woe to them! for they have started aside from me: they are cowards; for they have sinned against me: yet I redeemed them, but they spoke falsehoods against me
 
 >Say to the cowardly: "Be strong; do not fear! Here is your God; vengeance is coming. God's retribution is coming; he will save you."
+
+>Do not give yourself as security because you are shamed before people.
+
+>Now people swear oaths by someone greater than themselves, and confirmation of an oath puts an end to all dispute.
