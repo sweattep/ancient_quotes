@@ -285,3 +285,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Do not give yourself as security because you are shamed before people.
 
 >Now people swear oaths by someone greater than themselves, and confirmation of an oath puts an end to all dispute.
+
+>Keep falsehood and futility far from me, and give me neither poverty nor wealth, yes, provide just the food I need today;
