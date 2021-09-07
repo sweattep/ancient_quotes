@@ -287,3 +287,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Now people swear oaths by someone greater than themselves, and confirmation of an oath puts an end to all dispute.
 
 >Keep falsehood and futility far from me, and give me neither poverty nor wealth, yes, provide just the food I need today;
+
+>And it was that when day had dawned, and he shook off his wine, his wife told him these matters, and his heart died within him and it was like a stone
