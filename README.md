@@ -292,3 +292,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Keep falsehood and futility far from me, and give me neither poverty nor wealth, yes, provide just the food I need today;
 
 >And it was that when day had dawned, and he shook off his wine, his wife told him these matters, and his heart died within him and it was like a stone
+
+>But why should we be happy that we have given you these gifts? They belong to you, and we have only given back what is already yours.
+
+>All their neighbors helped them by giving them many things: silver utensils, gold, supplies, pack animals, other valuables, and offerings for the Temple.
+
+>Is any good you may have done at all helpful to Him?
