@@ -300,3 +300,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >It is not the healthy who need a doctor, but the sick. But go and learn what this means: 'I desire mercy, not sacrifice.'
 
 >Is any good you may have done at all helpful to Him?
+
+>And they are dogs whose soul is greedy, and they do not know how to be satisfied. They shall be evil and they do not know understanding. All of them turned to their way, each man to this side and to that side
