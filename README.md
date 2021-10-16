@@ -304,3 +304,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And they are dogs whose soul is greedy, and they do not know how to be satisfied. They shall be evil and they do not know understanding. All of them turned to their way, each man to this side and to that side
 
 >The wise man will live as long as he ought, not as long as he can
+
+>No one knows himself. It is only by the consequences of his actions, by the fruit of his labors, that a man can judge what he is to expect.
