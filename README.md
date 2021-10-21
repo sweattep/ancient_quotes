@@ -306,3 +306,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >The wise man will live as long as he ought, not as long as he can
 
 >No one knows himself. It is only by the consequences of his actions, by the fruit of his labors, that a man can judge what he is to expect.
+
+>Let your food be your medicine and your medicine be your food
+
+>When diet is wrong, medicine is of no use. When diet is correct, medicine is of no need.
