@@ -310,3 +310,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Let your food be your medicine and your medicine be your food
 
 >When diet is wrong, medicine is of no use. When diet is correct, medicine is of no need.
+
+>What are a billion years compared to eternity? Not even a glimmer. Why, then, do we scramble after such short-lived earthly goals, goals that even if attained prove to be worthless since they vanish away so quickly? Why do we continually deny our eternity and affirm the delusion of temporality? Because we identify thoroughly with that which is temporal and finite.
