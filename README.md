@@ -314,3 +314,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >What are a billion years compared to eternity? Not even a glimmer. Why, then, do we scramble after such short-lived earthly goals, goals that even if attained prove to be worthless since they vanish away so quickly? Why do we continually deny our eternity and affirm the delusion of temporality? Because we identify thoroughly with that which is temporal and finite.
 
 >Once an enemy, never a friend, not even after death
+
+>The balance and scales of justice have their origin in God; all the weights in the bag are His doing
+
+>Ordinary folks are merely a breath, and important people a sham; if you lay them on a balance scale, they go up - both together they are lighter than nothing
