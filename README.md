@@ -1,5 +1,7 @@
 >Cleanse yourself before your own eyes lest another cleanse you.
 
+>Strengthen the limp hands and steady the feeble knees!
+
 >Those who will rise early and are late to sit down eating bread, in sorrows, are worthless, so he will give his beloved ones sleep.
 
 >The extinction of evil desire is the highest religion
