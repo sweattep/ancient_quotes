@@ -320,3 +320,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >The balance and scales of justice have their origin in God; all the weights in the bag are His doing
 
 >Ordinary folks are merely a breath, and important people a sham; if you lay them on a balance scale, they go up - both together they are lighter than nothing
+
+>Don't even mention the name of their gods, let alone have people swear by them, serve them, or worship them
+
+>When our enemies heard that the plot was known to us, and God had foiled their plans, we all returned to the wall, everyone to his work
+
+>Fight for your brothers, sons, daughters, wives, and homes
