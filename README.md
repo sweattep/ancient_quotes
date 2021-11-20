@@ -4,6 +4,10 @@
 
 >Those who will rise early and are late to sit down eating bread, in sorrows, are worthless, so he will give his beloved ones sleep.
 
+>Do not make unlawful the wholesome things which God has made lawful for you, but commit no excess for God does not love those given to excess.
+
+>When you see one who has more, look to one who has less
+
 >The extinction of evil desire is the highest religion
 
 >He whose wickedness is very great brings himself down to that state where his enemy wishes him to be. He himself is his greatest enemy. Thus a creeper destroys the life of a tree on which it finds support.
