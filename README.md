@@ -42,6 +42,8 @@
 
 >The superior man does what is proper to the station in which he is; he does not desire to go beyond this. In a position of wealth and honor, he does what is proper to a position of wealth and honor. In a poor and low position, he does what is proper to a poor and low position. Situated among barbarous tribes, he does what is proper to a situation among barbarous tribes. In a position of sorrow and difficulty, he does what is proper to a position of sorrow and difficulty. The superior man can find himself in no situation in which he is not himself. In a high situation, he does not treat with contempt his inferiors. In a low situation, he does not court the favor of his superiors. He rectifies himself, and seeks for nothing from others, so that he has no dissatisfactions. He does not murmur against Heaven, nor grumble against men. Thus it is that the superior man is quiet and calm, waiting for the appointments of Heaven, while the mean man walks in dangerous paths, looking for lucky occurrences.
 
+>Five of the curtains are to be joined together, and the other five joined as well. Make loops of blue material on the edge of the end curtain in the first set, and do the same for the end curtain in the second set. Make fifty loops on one curtain and fifty loops on the end curtain of the second set, so that the loops line up opposite one another. Make fifty gold clasps as well, and join the curtains together with the clasps, so that the tabernacle will be a unit.
+
 >You have power over your mind - not outside events. Realize this, and you will find strength.
 
 > A whole army may be robbed of its spirit; a commander-in-chief may be robbed of his presence of mind.
