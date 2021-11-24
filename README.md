@@ -2,6 +2,10 @@
 
 >Strengthen the limp hands and steady the feeble knees!
 
+>You provide a broad path for my feet, so that my ankles do not give way.
+
+>For my loins are full of burning pain, and no soundness remains in my body.
+
 >Those who will rise early and are late to sit down eating bread, in sorrows, are worthless, so he will give his beloved ones sleep.
 
 >Do not make unlawful the wholesome things which God has made lawful for you, but commit no excess for God does not love those given to excess.
