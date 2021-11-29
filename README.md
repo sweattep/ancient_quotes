@@ -338,3 +338,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >When our enemies heard that the plot was known to us, and God had foiled their plans, we all returned to the wall, everyone to his work
 
 >Fight for your brothers, sons, daughters, wives, and homes
+
+>If you plan and work hard, you will have plenty; if you hurry to get rich, you will end up poor
