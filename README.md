@@ -342,3 +342,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >If you plan and work hard, you will have plenty; if you hurry to get rich, you will end up poor
 
 >My wife can't stand my breath, I am loathsome to my own family. Even young children despise me &mdash; if I stand up, they start jeering at me. All my intimate friends abhor me, and those I loved have turned against me. My bones stick to my flesh; I have escaped by the skin of my teeth.
+
+>TEKEL means that you have been weighed on the scales and found deficient
