@@ -2,6 +2,12 @@
 
 >Strengthen the limp hands and steady the feeble knees!
 
+>The balance and scales of justice have their origin in God; all the weights in the bag are His doing
+
+>Ordinary folks are merely a breath, and important people a sham; if you lay them on a balance scale, they go up - both together they are lighter than nothing
+
+>TEKEL means that you have been weighed on the scales and found deficient
+
 >You provide a broad path for my feet, so that my ankles do not give way.
 
 >For my loins are full of burning pain, and no soundness remains in my body.
@@ -9,6 +15,10 @@
 >Those who will rise early and are late to sit down eating bread, in sorrows, are worthless, so he will give his beloved ones sleep.
 
 >Do not make unlawful the wholesome things which God has made lawful for you, but commit no excess for God does not love those given to excess.
+
+>On the seventh day they must shave off all their hair; they must shave their head, their beard, their eyebrows and the rest of their hair. They must wash their clothes and bathe themselves with water, and they will be clean.
+
+>Now, son of man, take a sharp sword and use it as a barber's razor to shave your head and your beard. Then take a set of scales and divide up the hair.
 
 >When you see one who has more, look to one who has less
 
@@ -120,8 +130,6 @@ Therefore strengthen your limp hands and weak knees.
 >The one who denies justice to a resident alien, a fatherless child, or a widow is cursed. And all the people will say, Amen!
 
 >But a man, despite his wealth, cannot endure; he is like the beasts that perish. This is the fate of the self-confident and their followers who endorse their sayings.
-
->Now, son of man, take a sharp sword and use it as a barber's razor to shave your head and your beard. Then take a set of scales and divide up the hair.
 
 >If you lay your hand on him, you won't forget the fight, and you'll never do it again!     
 
@@ -329,10 +337,6 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Once an enemy, never a friend, not even after death
 
->The balance and scales of justice have their origin in God; all the weights in the bag are His doing
-
->Ordinary folks are merely a breath, and important people a sham; if you lay them on a balance scale, they go up - both together they are lighter than nothing
-
 >Don't even mention the name of their gods, let alone have people swear by them, serve them, or worship them
 
 >When our enemies heard that the plot was known to us, and God had foiled their plans, we all returned to the wall, everyone to his work
@@ -342,8 +346,6 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >If you plan and work hard, you will have plenty; if you hurry to get rich, you will end up poor
 
 >My wife can't stand my breath, I am loathsome to my own family. Even young children despise me &mdash; if I stand up, they start jeering at me. All my intimate friends abhor me, and those I loved have turned against me. My bones stick to my flesh; I have escaped by the skin of my teeth.
-
->TEKEL means that you have been weighed on the scales and found deficient
 
 >Though his face is covered with fat and his waistline bulges with flesh, he will dwell in ruined cities, in abandoned houses destined to become rubble
 
