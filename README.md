@@ -346,3 +346,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >TEKEL means that you have been weighed on the scales and found deficient
 
 >Though his face is covered with fat and his waistline bulges with flesh, he will dwell in ruined cities, in abandoned houses destined to become rubble
+
+>It must not be used to anoint an ordinary man, and you must not make anything like it with the same formula. It is holy, and it must be holy to you.
