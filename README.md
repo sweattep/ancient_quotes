@@ -8,6 +8,10 @@
 
 >TEKEL means that you have been weighed on the scales and found deficient
 
+>By your strength you set up the mountains. You are clothed with power.
+
+>She gathers her strength around her and throws herself into her work.
+
 >You provide a broad path for my feet, so that my ankles do not give way.
 
 >For my loins are full of burning pain, and no soundness remains in my body.
