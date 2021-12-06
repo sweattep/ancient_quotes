@@ -18,6 +18,10 @@
 
 >You provide a broad path for my feet, so that my ankles do not give way.
 
+>You are to differentiate between what's sacred and common and between what's unclean and clean.
+
+>Therefore, remove anger from your heart; and keep from harming your body; for neither adolescence nor youth has any lasting value. 
+
 >For my loins are full of burning pain, and no soundness remains in my body.
 
 >Those who will rise early and are late to sit down eating bread, in sorrows, are worthless, so he will give his beloved ones sleep.
@@ -364,5 +368,3 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >You shall not deny justice to the poor in their lawsuits. Stay far away from a false accusation. Do not kill the innocent or the just, for I will not acquit the guilty. Do not accept a bribe, for a bribe blinds those who see and twists the words of the righteous.
 
 >Ransom me from the oppression of man, and I observe Your precepts
-
->You are to differentiate between what's sacred and common and between what's unclean and clean.
