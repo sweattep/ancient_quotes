@@ -10,6 +10,8 @@
 
 >By your strength you set up the mountains. You are clothed with power.
 
+>Human wrath serves only to praise you; what remains of this wrath you wear as an ornament
+
 >She gathers her strength around her and throws herself into her work.
 
 >You provide a broad path for my feet, so that my ankles do not give way.
