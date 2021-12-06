@@ -10,8 +10,8 @@
 
 >By your strength you set up the mountains. You are clothed with power.
 
->Behold, his strength in his waist, And his power in the muscles of his belly.
->
+>Behold, his strength in his waist, and his power in the muscles of his belly.
+
 >Human wrath serves only to praise you; what remains of this wrath you wear as an ornament
 
 >She gathers her strength around her and throws herself into her work.
