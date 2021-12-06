@@ -368,3 +368,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >You shall not deny justice to the poor in their lawsuits. Stay far away from a false accusation. Do not kill the innocent or the just, for I will not acquit the guilty. Do not accept a bribe, for a bribe blinds those who see and twists the words of the righteous.
 
 >Ransom me from the oppression of man, and I observe Your precepts
+
+>My father! If the prophet had asked you to do something really difficult, wouldn't you have done it? So, doesn't it make even more sense to do what he says, when it's only, 'Bathe, and be clean'?
