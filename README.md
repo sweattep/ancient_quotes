@@ -24,6 +24,8 @@
 
 >For my loins are full of burning pain, and no soundness remains in my body.
 
+>Don't stare at me because I am dark, it is the sun that tanned me. My Mother's sons were angry with me and made me look after their vineyards. But I haven't cared for my own vineyard.
+>
 >Those who will rise early and are late to sit down eating bread, in sorrows, are worthless, so he will give his beloved ones sleep.
 
 >Do not make unlawful the wholesome things which God has made lawful for you, but commit no excess for God does not love those given to excess.
