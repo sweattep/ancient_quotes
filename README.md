@@ -12,6 +12,8 @@
 
 >Behold, his strength in his waist, and his power in the muscles of his belly.
 
+>His hands are like a fortress city of gold that is full of stones of gold; his belly the work of ivory on the blowing of sapphire
+
 >Human wrath serves only to praise you; what remains of this wrath you wear as an ornament
 
 >She gathers her strength around her and throws herself into her work.
