@@ -382,3 +382,13 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >I have waited for good and evil came; I have waited for the light, and blackness came
 
 >And like a Servant who waits for the shade, and like a hired man who waits to finish his work
+
+>Do not rely on a friend; do not trust in a companion. Seal the doors of your mouth from her who lies in your arms.
+
+>The men who have been invoking your peace deceived you and prevailed over you and sank your feet into the mud, and they have turned their tail
+
+>Even your brother or your son or your daughter or the wife you love or your closest friend may secretly encourage you to worship other gods, gods that you and your ancestors have never worshiped.
+
+>Your allies can't be trusted. They will force you out of your own country. And your best friends will trick and trap you, even before you know it.
+
+>Indeed, your written instructions make me happy. They are my best friends.
