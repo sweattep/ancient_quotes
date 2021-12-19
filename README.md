@@ -374,3 +374,11 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Ransom me from the oppression of man, and I observe Your precepts
 
 >My father! If the prophet had asked you to do something really difficult, wouldn't you have done it? So, doesn't it make even more sense to do what he says, when it's only, 'Bathe, and be clean'?
+
+>Surely none who wait for You will be put to shame; but those who are faithless without cause will be disgraced.
+
+>But you, return to your God, and keep grace and judgment; expect your God constantly
+
+>I have waited for good and evil came; I have waited for the light, and blackness came
+
+>And like a Servant who waits for the shade, and like a hired man who waits to finish his work
