@@ -41,7 +41,9 @@
 >The extinction of evil desire is the highest religion
 
 >Do not let my heart be drawn to any evil thing or take part in works of wickedness with men who do iniquity; let me not feast on their delicacies.
->
+
+>For all nations have drunk of the wine of the wrath of her fornication, and the kings of the earth have committed fornication with her, and the merchants of the earth are waxed rich through the abundance of her delicacies
+
 >He whose wickedness is very great brings himself down to that state where his enemy wishes him to be. He himself is his greatest enemy. Thus a creeper destroys the life of a tree on which it finds support.
 
 >Let a wise man blow off the impurities of his self, as a smith blows off the impurities of silver, one by one, little by little, and from time to time.
