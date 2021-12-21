@@ -396,3 +396,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Your allies can't be trusted. They will force you out of your own country. And your best friends will trick and trap you, even before you know it.
 
 >Indeed, your written instructions make me happy. They are my best friends.
+
+>Next, I decided to consider wisdom, as well as foolish behavior and ideas. For what more can the king's successor do than what the king has already done?
