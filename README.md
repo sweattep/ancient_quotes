@@ -398,3 +398,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Indeed, your written instructions make me happy. They are my best friends.
 
 >Next, I decided to consider wisdom, as well as foolish behavior and ideas. For what more can the king's successor do than what the king has already done?
+
+>When the day's cool breeze comes up and the shadows lengthen, I will get myself to the mountain of myrrh, to the hill of frankincense
