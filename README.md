@@ -20,6 +20,8 @@
 
 >You provide a broad path for my feet, so that my ankles do not give way.
 
+>Be sharp! Attack on the right, or parry to your left, wherever you point your sword
+>
 >You are to differentiate between what's sacred and common and between what's unclean and clean.
 
 >Therefore, remove anger from your heart; and keep from harming your body; for neither adolescence nor youth has any lasting value. 
