@@ -406,3 +406,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >The mandrakes have given a fragrance, and all our fruits, new ones and old ones, my beloved, I have kept for you upon our gates
 
 >God sends rain to water the earth; he may send it to punish us, or to show us his favor.
+
+>You will sweat all your life to earn a living; you were made out of soil, and you will once again turn into soil.
