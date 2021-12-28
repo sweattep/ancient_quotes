@@ -404,3 +404,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >When the day's cool breeze comes up and the shadows lengthen, I will get myself to the mountain of myrrh, to the hill of frankincense
 
 >The mandrakes have given a fragrance, and all our fruits, new ones and old ones, my beloved, I have kept for you upon our gates
+
+>God sends rain to water the earth; he may send it to punish us, or to show us his favor.
