@@ -408,3 +408,11 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >God sends rain to water the earth; he may send it to punish us, or to show us his favor.
 
 >You will sweat all your life to earn a living; you were made out of soil, and you will once again turn into soil.
+
+>My tears have been food for me by day and by night, while they have been saying to me every day, "Where is your God?"
+
+>Let their table be a snare before them, and their reward a stumbling block.
+
+>I sigh when food is put before me, and my groans pour out like water.
+
+>Yeshua said to them, “My personal food is that I do the will of him who has sent me and finish His work
