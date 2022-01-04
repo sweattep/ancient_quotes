@@ -420,3 +420,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Therefore, remember where you were before you fell, and turn from this sin, and do what you used to do before.
 
 >I'll fall on him unexpectedly when he's tired and powerless, I'll frighten him, all the people will flee, and I'll attack only the king. Then I will bring back to you all the people; and when they have returned, except the one you are seeking, all the people will be at peace
+
+>As for me, I will hope continuously and will praise you more and more.
