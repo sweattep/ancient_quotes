@@ -424,3 +424,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >As for me, I will hope continuously and will praise you more and more.
 
 >Who can hear what God is saying And receive the knowledge that comes from the Most High. With staring eyes I see in a trance A vision from Almighty God.
+
+>Before your very eyes I will take your wives and give them to another, and he will lie with them in broad daylight. You have acted in secret, but I will do this thing in broad daylight before all Israel.
