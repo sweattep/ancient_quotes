@@ -430,3 +430,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >If you had not plowed with my heifer, you would not have solved my riddle.
 
 >You are not to make a covenant with them or with their gods.
+
+>But if you listen to what he says and do everything I tell you, then I will be an enemy to your enemies and a foe to your foes.
