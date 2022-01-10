@@ -434,3 +434,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Do not follow the crowd  when it does what is wrong
 
 >But if you listen to what he says and do everything I tell you, then I will be an enemy to your enemies and a foe to your foes.
+
+>Cursed is everyone who will divert the judgment of a settler or of an orphan or of a widow, and all the people shall say, "Amen."
+
+>Pure and undefiled religion before God the Father is this: to care for orphans and widows in their misfortune and to keep oneself unstained by the world.
