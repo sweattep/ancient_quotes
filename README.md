@@ -438,3 +438,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Cursed is everyone who will divert the judgment of a settler or of an orphan or of a widow, and all the people shall say, "Amen."
 
 >Pure and undefiled religion before God the Father is this: to care for orphans and widows in their misfortune and to keep oneself unstained by the world.
+
+>A king's greatness depends on how many people he rules; without them he is nothing.
+
+>In the abundance of the evil ones, evil increases, and the righteous will rejoice in their fall.
