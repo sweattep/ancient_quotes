@@ -446,3 +446,13 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >I was with the weak as weak that I might gain the weak. I was everything to every person that I might give life to every person.
 
 >If one does not repent, God will sharpen His sword; He has bent and strung His bow
+
+>Every person works for his own self-interests, but his desires remain unsatisfied.
+
+>And he shall cut up on his right and he shall hunger and he shall eat on his left, and they shall not be satisfied; a man shall eat the flesh of his own arm
+
+>Because he did not know his judgment in his gut, and by his lusts he will not escape
+
+>All things are full of weariness beyond uttering. The eye is not satisfied with seeing, nor the ear filled with hearing.
+
+>Here is someone who lives alone. He has no son, no brother, yet he is always working, never satisfied with the wealth he has. For whom is he working so hard and denying himself any pleasure? This is useless, too--and a miserable way to live.
