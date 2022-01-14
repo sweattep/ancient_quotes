@@ -444,3 +444,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >In the abundance of the evil ones, evil increases, and the righteous will rejoice in their fall.
 
 >I was with the weak as weak that I might gain the weak. I was everything to every person that I might give life to every person.
+
+>If one does not repent, God will sharpen His sword; He has bent and strung His bow
