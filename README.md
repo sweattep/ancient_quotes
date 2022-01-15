@@ -462,3 +462,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >The people ask, "Why should we fast if the Lord never notices? Why should we go without food if he pays no attention?" The Lord says to them, "The truth is that at the same time you fast, you pursue your own interests and oppress your workers.
 
 >So we went without food and asked God himself to protect us, and he answered our prayers.
+
+>Ask all the people of the land and the priests, When you fasted and mourned in the fifth and seventh months for the past seventy years, was it really for me that you fasted?
