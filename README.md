@@ -458,3 +458,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Here is someone who lives alone. He has no son, no brother, yet he is always working, never satisfied with the wealth he has. For whom is he working so hard and denying himself any pleasure? This is useless, too--and a miserable way to live.
 
 >But the just Lord is in the midst of her, and he will never do an unjust thing: morning by morning he will bring out his judgment to the light, and it is not hidden, and he knows not injustice by extortion, nor injustice in strife.
+
+>The people ask, "Why should we fast if the Lord never notices? Why should we go without food if he pays no attention?" The Lord says to them, "The truth is that at the same time you fast, you pursue your own interests and oppress your workers.
