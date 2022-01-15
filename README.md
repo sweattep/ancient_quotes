@@ -456,3 +456,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >All things are full of weariness beyond uttering. The eye is not satisfied with seeing, nor the ear filled with hearing.
 
 >Here is someone who lives alone. He has no son, no brother, yet he is always working, never satisfied with the wealth he has. For whom is he working so hard and denying himself any pleasure? This is useless, too--and a miserable way to live.
+
+>But the just Lord is in the midst of her, and he will never do an unjust thing: morning by morning he will bring out his judgment to the light, and it is not hidden, and he knows not injustice by extortion, nor injustice in strife.
