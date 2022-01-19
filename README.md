@@ -464,3 +464,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >So we went without food and asked God himself to protect us, and he answered our prayers.
 
 >Ask all the people of the land and the priests, When you fasted and mourned in the fifth and seventh months for the past seventy years, was it really for me that you fasted?
+
+>O my people, I ask no recompense of you for it: My reward is with Him who created me
