@@ -466,3 +466,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Ask all the people of the land and the priests, When you fasted and mourned in the fifth and seventh months for the past seventy years, was it really for me that you fasted?
 
 >O my people, I ask no recompense of you for it: My reward is with Him who created me
+
+>Better is a name than good perfume, And the day of death than the day of birth.
+
+>If they don't know how to control their own families, how can they look after God's people?
