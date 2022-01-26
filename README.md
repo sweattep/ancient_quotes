@@ -32,6 +32,8 @@
 
 >Those who will rise early and are late to sit down eating bread, in sorrows, are worthless, so he will give his beloved ones sleep.
 
+>Come away quickly, my beloved. Run like a gazelle or a young stag on the mountains of spices.
+
 >Do not make unlawful the wholesome things which God has made lawful for you, but commit no excess for God does not love those given to excess.
 
 >On the seventh day they must shave off all their hair; they must shave their head, their beard, their eyebrows and the rest of their hair. They must wash their clothes and bathe themselves with water, and they will be clean.
@@ -431,7 +433,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >You are not to make a covenant with them or with their gods.
 
->Do not follow the crowd  when it does what is wrong
+>Do not follow the crowd when it does what is wrong
 
 >But if you listen to what he says and do everything I tell you, then I will be an enemy to your enemies and a foe to your foes.
 
@@ -459,7 +461,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >But the just Lord is in the midst of her, and he will never do an unjust thing: morning by morning he will bring out his judgment to the light, and it is not hidden, and he knows not injustice by extortion, nor injustice in strife.
 
->The people ask, "Why should we fast if the Lord never notices? Why should we go without food if he pays no attention?" The Lord says to them, "The truth is that at the same time you fast, you pursue your own interests and oppress your workers.
+>The people ask, "Why should we fast if the Lord never notices? Why should we go without food if he pays no attention?" The Lord says to them, "The truth is that at the same time you fast, you pursue your own interests and oppress your workers."
 
 >So we went without food and asked God himself to protect us, and he answered our prayers.
 
