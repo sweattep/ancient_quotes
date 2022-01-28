@@ -476,3 +476,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Better is a name than good perfume, And the day of death than the day of birth.
 
 >If they don't know how to control their own families, how can they look after God's people?
+
+>And startle whomever of them you can with your voice, and rally against them your horsemen and your foot (soldiers); and be a partner with them in (their) riches and (their) children, and promise them!
