@@ -484,3 +484,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Verily, those who accuse chaste women, who never even think of anything touching their chastity and are good believers - are cursed in this life and in the Hereafter, and for them will be a great torment
 
 >Uphold the faith and do not divide into factions within it
+
+>But if his shirt is torn from behind, then that is an indication that he is truthful, because she was trying to seduce him whilst he was running away; and she will be lying.
