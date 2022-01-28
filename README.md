@@ -42,6 +42,8 @@
 
 >When you see one who has more, look to one who has less
 
+>But when fear leaves them and they become content, they harm you verbally with abusive sharp tongues
+
 >The extinction of evil desire is the highest religion
 
 >Do not let my heart be drawn to any evil thing or take part in works of wickedness with men who do iniquity; let me not feast on their delicacies.
