@@ -486,3 +486,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Uphold the faith and do not divide into factions within it
 
 >But if his shirt is torn from behind, then that is an indication that he is truthful, because she was trying to seduce him whilst he was running away; and she will be lying.
+
+>He is the One Who creates you in different forms in the wombs of your mothers, as He wills: as male and female, handsome and ugly, black and white. There is no one worthy of being worshipped with love and reverence besides Him. He is Mighty and cannot be overpowered. He is Wise in His planning and legislation.
