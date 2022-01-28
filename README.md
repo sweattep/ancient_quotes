@@ -482,3 +482,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >So We listened to him: and We granted him Yahya: We cured his wife's (Barrenness) for him. These (three) were ever quick in emulation in good works; they used to call on Us with love and reverence, and humble themselves before Us.
 
 >Verily, those who accuse chaste women, who never even think of anything touching their chastity and are good believers - are cursed in this life and in the Hereafter, and for them will be a great torment
+
+>Uphold the faith and do not divide into factions within it
