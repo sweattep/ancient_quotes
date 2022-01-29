@@ -29,8 +29,14 @@
 >I am worn out and weak, moaning and in distress
 
 >Thus have We made for every prophet an enemy among the sinners: but enough is thy Lord to guide and to help
->
+
+>They have bought error in exchange for guidance, so their trade reaps no profit, and they are not rightly guided
+
 >Don't stare at me because I am dark, it is the sun that tanned me. My Mother's sons were angry with me and made me look after their vineyards. But I haven't cared for my own vineyard.
+
+>We have indeed established you on earth and provided you with a means of livelihood. Yet you seldom give any thanks.
+
+>I will approach them from their front, their back, their right, their left, and then You will find most of them ungrateful.
 
 >Those who will rise early and are late to sit down eating bread, in sorrows, are worthless, so he will give his beloved ones sleep.
 
