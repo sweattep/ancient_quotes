@@ -500,3 +500,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Those who distance themselves from major and offensive sins and when they are angry at those who offend them by words or deeds they forgive their mistake and do not punish them for it. This pardon is a grace they offer when there is goodness and benefit in it.
 
 >Leave Me Alone (to deal) with whom I created lonely (without any wealth or children. And then granted him resources in abundance. And children to be by his side. And made life smooth and comfortable for him.  After all that he desires that I should give more
+
+>Hold to forgiveness; command what is right; But turn away from the ignorant.
