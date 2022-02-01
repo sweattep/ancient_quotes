@@ -502,3 +502,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Leave Me Alone (to deal) with whom I created lonely (without any wealth or children. And then granted him resources in abundance. And children to be by his side. And made life smooth and comfortable for him.  After all that he desires that I should give more
 
 >Hold to forgiveness; command what is right; But turn away from the ignorant.
+
+>Those who spend their wealth in charity, day and night, in secret and in public; they will have their reward with their Lord, and they will have no fear, nor will they grieve.
