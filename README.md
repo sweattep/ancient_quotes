@@ -512,3 +512,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >If I betray him, I will be a wrongdoer; and those who do wrong do not succeed.
 
 >If you have reason to fear from a people betrayal, throw their treaty back to them, putting you on equal terms.
+
+>As a result of their breaking of the covenant We cursed them and made their hearts grow hard
