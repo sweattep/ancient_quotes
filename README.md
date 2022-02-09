@@ -506,3 +506,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Those who spend their wealth in charity, day and night, in secret and in public; they will have their reward with their Lord, and they will have no fear, nor will they grieve.
 
 >Remove far from me vanity and falsehood: and give me not wealth or poverty; but appoint me what is needful and sufficient
+
+>Woe to me! I wish I had not taken so-and-so for a close friend
