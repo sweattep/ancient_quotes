@@ -508,3 +508,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Remove far from me vanity and falsehood: and give me not wealth or poverty; but appoint me what is needful and sufficient
 
 >Woe to me! I wish I had not taken so-and-so for a close friend
+
+>If I betray him, I will be a wrongdoer; and those who do wrong do not succeed.
+
+>If you have reason to fear from a people betrayal, throw their treaty back to them, putting you on equal terms.
