@@ -514,3 +514,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >If you have reason to fear from a people betrayal, throw their treaty back to them, putting you on equal terms.
 
 >As a result of their breaking of the covenant We cursed them and made their hearts grow hard
+
+>So, verily, with every difficulty, there is relief: verily, with every difficulty, there is relief: Therefore, when thou art free (from thine immediate task), still labour hard, And to thy Lord turn (all) thy attention.
