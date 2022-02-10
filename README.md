@@ -516,3 +516,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >As a result of their breaking of the covenant We cursed them and made their hearts grow hard
 
 >So, verily, with every difficulty, there is relief: verily, with every difficulty, there is relief: Therefore, when thou art free (from thine immediate task), still labour hard, And to thy Lord turn (all) thy attention.
+
+>We have created everything in due proportion. Our command comes only once, in the twinkling of an eye!
