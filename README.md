@@ -518,3 +518,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >So, verily, with every difficulty, there is relief: verily, with every difficulty, there is relief: Therefore, when thou art free (from thine immediate task), still labour hard, And to thy Lord turn (all) thy attention.
 
 >We have created everything in due proportion. Our command comes only once, in the twinkling of an eye!
+
+>I want to let you bear your sin against me along with your other sins, then you will be one of those destined to the Fire. And that is the reward of the wrongdoers.
