@@ -526,3 +526,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And do not become like the woman who, after having painstakingly spun her yarn, caused it to disintegrate into pieces. You resort to oaths as instruments of mutual deceit so that one people might take greater advantage than another
 
 >He knows all that lies open before them and all that lies hidden from them; whereas they cannot attain to anything of His knowledge save as He wills.
+
+>My people, the life of this world is ephemeral, whereas the Hereafter, that is the permanent abode. Whosoever does an evil deed will be requited only with the like of it; and whosoever acts righteously and has attained to faith be he a male or a female they shall enter Paradise and be provided sustenance beyond all reckoning.
