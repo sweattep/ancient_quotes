@@ -524,3 +524,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >>Those who avoid enormities of sin and abominations, save the unwilled offences - (for them) lo! thy Lord is of vast mercy. He is Best Aware of you (from the time) when He created you from the earth, and when ye were hidden in the bellies of your mothers. Therefor ascribe not purity unto yourselves. He is Best Aware of him who wardeth off (evil).
 
 >And do not become like the woman who, after having painstakingly spun her yarn, caused it to disintegrate into pieces. You resort to oaths as instruments of mutual deceit so that one people might take greater advantage than another
+
+>He knows all that lies open before them and all that lies hidden from them; whereas they cannot attain to anything of His knowledge save as He wills.
