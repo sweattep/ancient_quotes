@@ -544,3 +544,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Believers, avoid being excessively suspicious, for some suspicion is a sin. Do not spy, nor backbite one another.
 
 >Keep yourself content with those who call upon their Lord, morning and evening, seeking His pleasure, and do not let your eyes pass beyond them. Do you seek the pomp and glitter of the world? Do not follow him whose heart We have caused to be heedless of Our remembrance, and who follows his desires, and whose attitude is of excess.
+
+>Souls have been naturally created with greed and miserliness, and will not be keen to give up any right.
+
+>And I endued thee with love from Me that thou mightest be trained according to My will
+
+>The enjoyment of the life of the world which lasts only for a short while. A believer should not become attached to these things
