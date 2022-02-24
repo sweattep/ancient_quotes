@@ -536,3 +536,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Indeed many who live together commit excesses, one to the other, except those that believe and act righteously; and they are but few.
 
 >As for man, when his Lord tests him, and thus gives him honour and bounties, he says, "My Lord has honoured me." But when he tests him, and thus straitens his provision for him, he says, "My Lord has disgraced me. No! But you do not honour the orphan, and do not encourage one another to feed the needy, And you devour the inheritance with a sweeping gulp, and love wealth, with an excessive love.
+
+>Whoever kills a person not (to retaliate) for a per-son killed nor (to punish) for spreading disorder in the earth, is as if he has killed the whole mankind, and whoever saves the life of a person is as if he has saved the life of the whole mankind. 
