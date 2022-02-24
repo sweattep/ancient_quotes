@@ -538,3 +538,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >As for man, when his Lord tests him, and thus gives him honour and bounties, he says, "My Lord has honoured me." But when he tests him, and thus straitens his provision for him, he says, "My Lord has disgraced me. No! But you do not honour the orphan, and do not encourage one another to feed the needy, And you devour the inheritance with a sweeping gulp, and love wealth, with an excessive love.
 
 >Whoever kills a person not (to retaliate) for a per-son killed nor (to punish) for spreading disorder in the earth, is as if he has killed the whole mankind, and whoever saves the life of a person is as if he has saved the life of the whole mankind. 
+
+>Remain and be close with your poor companions who sincerely call on their Lord in worship and supplication at the beginning and at the end of the day. Do not let your eyes overlook them intending to sit with people of affluence and prestige. Do not follow the one whose heart I have made neglectful of Our remembrance by sealing it and who instructed you to remove the poor from your gathering giving preference to following his desire over following His Lord. His actions and deeds are thus foolish, excessive and in vain.
+
+>Believers, avoid being excessively suspicious, for some suspicion is a sin. Do not spy, nor backbite one another.
+
+>Keep yourself content with those who call upon their Lord, morning and evening, seeking His pleasure, and do not let your eyes pass beyond them. Do you seek the pomp and glitter of the world? Do not follow him whose heart We have caused to be heedless of Our remembrance, and who follows his desires, and whose attitude is of excess.
