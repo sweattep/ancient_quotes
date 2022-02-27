@@ -550,3 +550,17 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And I endued thee with love from Me that thou mightest be trained according to My will
 
 >The enjoyment of the life of the world which lasts only for a short while. A believer should not become attached to these things
+
+>We made the day and night as two signs. So We made the sign of the night devoid of light, and We made the sign of the day ˹perfectly˺ bright, so that you may seek the bounty of your Lord and know the number of years and calculation ˹of time˺. And We have explained everything in detail. ˹And it will be said,˺ "Read your record. You ˹alone˺ are sufficient this Day to take account of yourself." 
+
+>Whoever chooses to be guided, it is only for their own good. And whoever chooses to stray, it is only to their own loss. No soul burdened with sin will bear the burden of another. And We would never punish a people until We have sent a messenger to warn them.
+
+>Man was truly created anxious: he is fretful when misfortune touches him, but tight-fisted when good fortune comes his way.
+
+>Surely the wasteful are ˹like˺ brothers to the devils. And the Devil is ever ungrateful to his Lord.
+
+>Do not be so tight-fisted, for you will be blameworthy; nor so open-handed, for you will end up in poverty.
+
+>Do not follow blindly what you do not know to be true: ears, eyes, and heart, you will be questioned about all these.
+
+>Do not strut arrogantly about the earth: you cannot break it open, nor match the mountains in height.      
