@@ -564,3 +564,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Do not follow blindly what you do not know to be true: ears, eyes, and heart, you will be questioned about all these.
 
 >Do not strut arrogantly about the earth: you cannot break it open, nor match the mountains in height.      
+
+>And when they encounter those who have attained faith, they say, "We have attained faith." But when they are alone with their Satans, they say, "We are indeed with you; we are only ridiculing."
