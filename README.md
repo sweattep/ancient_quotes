@@ -570,3 +570,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >But all things We have enumerated in writing.
 
 >But indeed, I am the Perpetual Forgiver of whoever repents and believes and does righteousness and then continues in guidance.
+
+>And if We had pleased, We would certainly have exalted him thereby; but he clung to the earth and followed his low desire, so his parable is as the parable of the dog; if you attack him he lolls out his tongue; and if you leave him alone he lolls out his tongue; this is the parable of the people who reject Our communications; therefore relate the narrative that they may reflect.
