@@ -576,3 +576,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And if the debtor is in straitened circumstances, then (let there be) postponement to (the time of) ease; and that ye remit the debt as almsgiving would be better for you if ye did but know.
 
 >And those who, before them, had homes and had adopted the Faith, love those who emigrate to them, and have no jealousy in their breasts for that which they have been given, and give them preference over themselves even though they were in need of that. And whosoever is saved from his own covetousness, such are they who will be the successful.
+
+>Take what is given freely, enjoin what is good, and turn away from the ignorant.
