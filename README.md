@@ -574,3 +574,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And if We had pleased, We would certainly have exalted him thereby; but he clung to the earth and followed his low desire, so his parable is as the parable of the dog; if you attack him he lolls out his tongue; and if you leave him alone he lolls out his tongue; this is the parable of the people who reject Our communications; therefore relate the narrative that they may reflect.
 
 >And if the debtor is in straitened circumstances, then (let there be) postponement to (the time of) ease; and that ye remit the debt as almsgiving would be better for you if ye did but know.
+
+>And those who, before them, had homes and had adopted the Faith, love those who emigrate to them, and have no jealousy in their breasts for that which they have been given, and give them preference over themselves even though they were in need of that. And whosoever is saved from his own covetousness, such are they who will be the successful.
