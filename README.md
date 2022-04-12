@@ -582,3 +582,11 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Say to them, the death you try to flee from will meet you; then you will be conveyed back to him who knows the unseen and the witnessed. Then he will inform you of all that you have done
 
 >O you who have believed, spend from that which We have provided for you before there comes a Day in which there is no exchange and no friendship and no intercession. And the disbelievers - they are the wrongdoers.
+
+>The example of those who disbelieve is like that of one who shouts at what hears nothing but calls and cries &mdash; cattle or sheep &mdash; deaf, dumb and blind, so they do not understand.
+
+>The example of the two parties is like the blind and deaf, and the seeing and hearing. Are they equal in comparison? Then, will you not remember?
+
+>Indeed, they who have believed and done righteous deeds and humbled themselves to their Lord - those are the companions of Paradise; they will abide eternally therein.
+
+>Indeed, you will not make the dead hear, nor will you make the deaf hear the call when they have turned their backs retreating.
