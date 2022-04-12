@@ -578,3 +578,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And those who, before them, had homes and had adopted the Faith, love those who emigrate to them, and have no jealousy in their breasts for that which they have been given, and give them preference over themselves even though they were in need of that. And whosoever is saved from his own covetousness, such are they who will be the successful.
 
 >Take what is given freely, enjoin what is good, and turn away from the ignorant.
+
+>Say to them, the death you try to flee from will meet you; then you will be conveyed back to him who knows the unseen and the witnessed. Then he will inform you of all that you have done
+
+>O you who have believed, spend from that which We have provided for you before there comes a Day in which there is no exchange and no friendship and no intercession. And the disbelievers - they are the wrongdoers.
