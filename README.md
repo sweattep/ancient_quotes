@@ -590,3 +590,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Indeed, they who have believed and done righteous deeds and humbled themselves to their Lord - those are the companions of Paradise; they will abide eternally therein.
 
 >Indeed, you will not make the dead hear, nor will you make the deaf hear the call when they have turned their backs retreating.
+
+>And say, "My Lord, cause me to enter a sound entrance and to exit a sound exit and grant me from Yourself a supporting authority.
