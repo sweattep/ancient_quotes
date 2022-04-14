@@ -545,7 +545,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Believers, avoid being excessively suspicious, for some suspicion is a sin. Do not spy, nor backbite one another.
 
->Keep yourself content with those who call upon their Lord, morning and evening, seeking His pleasure, and do not let your eyes pass beyond them. Do you seek the pomp and glitter of the world? Do not follow him whose heart We have caused to be heedless of Our remembrance, and who follows his desires, and whose attitude is of excess.
+>Keep yourself content with those who call upon their Lord, morning and evening, seeking His pleasure, and do not let your eyes pass beyond them. 
+
+>Do you seek the pomp and glitter of the world? Do not follow him whose heart We have caused to be heedless of Our remembrance, and who follows his desires, and whose attitude is of excess.
 
 >Souls have been naturally created with greed and miserliness, and will not be keen to give up any right.
 
@@ -565,7 +567,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Do not follow blindly what you do not know to be true: ears, eyes, and heart, you will be questioned about all these.
 
->Do not strut arrogantly about the earth: you cannot break it open, nor match the mountains in height.      
+>Do not strut arrogantly about the earth: you cannot break it open, nor match the mountains in height.
 
 >And when they encounter those who have attained faith, they say, "We have attained faith." But when they are alone with their Satans, they say, "We are indeed with you; we are only ridiculing."
 
