@@ -607,4 +607,4 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >No reward do I ask of you for this except to be kind to me for my kinship with you.
 
->Listen and obey and spend in charity for the benefit of your own soul and those saved from the covetousness of their own souls, they are the ones that achieve prosperity.
+>Listen and obey and spend in charity for the benefit of your own soul. And those saved from the covetousness of their own souls, they are the ones that achieve prosperity.
