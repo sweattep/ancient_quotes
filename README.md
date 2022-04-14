@@ -592,3 +592,11 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Indeed, you will not make the dead hear, nor will you make the deaf hear the call when they have turned their backs retreating.
 
 >And say, "My Lord, cause me to enter a sound entrance and to exit a sound exit and grant me from Yourself a supporting authority.
+
+>truly many are the partners (in business) who wrong each other: Not so do those who believe and work deeds of righteousness, and how few are they?
+
+>And whoever is blinded from remembrance of the Most Merciful - We appoint for him a devil, and he is to him a companion.
+
+>O believers, among your wives and children there is an enemy to you; so beware of them. But if you pardon, and overlook, and if you forgive, surely God is All-forgiving, All-compassionate.
+
+>And when you look at them, their bodies please you; and when they speak, you listen to their words. They are as blocks of wood propped up. They think that every cry is against them. They are the enemies, so beware of them.
