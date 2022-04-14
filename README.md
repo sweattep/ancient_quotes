@@ -608,3 +608,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >No reward do I ask of you for this except to be kind to me for my kinship with you.
 
 >Listen and obey and spend in charity for the benefit of your own soul. And those saved from the covetousness of their own souls, they are the ones that achieve prosperity.
+
+>Let the well-to-do people spend abundantly (for the mother and the child) and let the poor spend from what God has given them. God does not impose on any soul that which he cannot afford. God will bring about ease after hardship.
+
+>They fight not against you even together, except in fortified townships, or from behind walls. Their enmity among themselves is very great
