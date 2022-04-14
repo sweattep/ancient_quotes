@@ -600,3 +600,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >O believers, among your wives and children there is an enemy to you; so beware of them. But if you pardon, and overlook, and if you forgive, surely God is All-forgiving, All-compassionate.
 
 >And when you look at them, their bodies please you; and when they speak, you listen to their words. They are as blocks of wood propped up. They think that every cry is against them. They are the enemies, so beware of them.
+
+>The mutual rivalry for piling up of worldly things diverts you until you come to the graves.
