@@ -233,6 +233,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Formerly the master selected the slave; today the slave selects his master
 
+>a slave owned by quarreling partners and another belonging exclusively to one man - are they equal in comparison
+
 >My son, keep the flower of thine age sound; and give not thy strength to strangers. When thou hast gotten a fruitful possession through all the field, sow it with thine own seed, trusting in the goodness of thy stock. So thy race which thou leavest shall be magnified, having the confidence of their good descent.
 
 >And therefore they that labour labour in vain: For strangers shall reap their fruits, and spoil their goods, overthrow their houses, and take their children captives, for in captivity and famine shall they get children.
@@ -602,3 +604,6 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And when you look at them, their bodies please you; and when they speak, you listen to their words. They are as blocks of wood propped up. They think that every cry is against them. They are the enemies, so beware of them.
 
 >The mutual rivalry for piling up of worldly things diverts you until you come to the graves.
+
+>No reward do I ask of you for this except to be kind to me for my kinship with you.
+
