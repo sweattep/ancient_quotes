@@ -617,6 +617,10 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >He says, "I have spent wealth in abundance." Does he think that no one has seen him? Have We not made for him two eyes? And a tongue and two lips? And have shown him the two ways? But he has not broken through the difficult pass. And what can make you know what is the difficult pass? It is the freeing of a slave. Or feeding on a day of severe hunger an orphan of near relationship or a needy person in misery. And then being among those who believed and advised one another to patience and advised one another to compassion. Those are the companions of the right. But they who disbelieved in Our signs - those are the companions of the left.
 
-> Those who do wrong conceal their private conversation
+>Those who do wrong conceal their private conversation
 
 >So leave them to converse vainly and amuse themselves until they meet their Day which they are promised.
+
+>Will you exchange that which is better for that which is worse?
+
+>And indeed, for you in grazing livestock is a lesson. We give you drink from what is in their bellies - between excretion and blood - pure milk, palatable to drinkers.
