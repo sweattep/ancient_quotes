@@ -624,3 +624,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Will you exchange that which is better for that which is worse?
 
 >And indeed, for you in grazing livestock is a lesson. We give you drink from what is in their bellies - between excretion and blood - pure milk, palatable to drinkers.
+
+>So do you believe in part of the Scripture and disbelieve in part? Then what is the recompense for those who do that among you except disgrace in worldly life
+
+>O you who have believed, decreed upon you is fasting as it was decreed upon those before you that you may become righteous
