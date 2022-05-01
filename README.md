@@ -633,4 +633,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >And believe in what I have sent down confirming that which is with you, and be not the first to disbelieve in it. And do not exchange My signs for a small price, and fear Me.
 
+>And among the People of the Scripture is he who, if you entrust him with a great amount [of wealth], he will return it to you. And among them is he who, if you entrust him with a [single] silver coin, he will not return it to you unless you are constantly standing over him
+
+>Beautified for people is the love of that which they desire - of women and sons, heaped-up sums of gold and silver, fine branded horses, and cattle and tilled land.
+
 >You must make it clear to the people and not conceal it.
