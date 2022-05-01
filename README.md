@@ -628,3 +628,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >So do you believe in part of the Scripture and disbelieve in part? Then what is the recompense for those who do that among you except disgrace in worldly life
 
 >O you who have believed, decreed upon you is fasting as it was decreed upon those before you that you may become righteous
+
+>Indeed, those who disbelieve and die while they are disbelievers - never would the [whole] capacity of the earth in gold be accepted from one of them if he would [seek to] ransom himself with it. For those there will be a painful punishment, and they will have no helpers.
