@@ -629,4 +629,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >O you who have believed, decreed upon you is fasting as it was decreed upon those before you that you may become righteous
 
->Indeed, those who disbelieve and die while they are disbelievers - never would the [whole] capacity of the earth in gold be accepted from one of them if he would [seek to] ransom himself with it. For those there will be a painful punishment, and they will have no helpers.
+>Indeed, those who disbelieve and die while they are disbelievers - never would the capacity of the earth in gold be accepted from one of them if he would [seek to] ransom himself with it. For those there will be a painful punishment, and they will have no helpers.
+
+>And believe in what I have sent down confirming that which is with you, and be not the first to disbelieve in it. And do not exchange My signs for a small price, and fear Me.
+
+>You must make it clear to the people and not conceal it.
