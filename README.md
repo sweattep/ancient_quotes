@@ -639,4 +639,6 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Beautified for people is the love of that which they desire - of women and sons, heaped-up sums of gold and silver, fine branded horses, and cattle and tilled land.
 
-> The best man for employment is definitely the strong and trustworthy
+>The best man for employment is definitely the strong and trustworthy
+
+>And test the orphans [in their abilities] until they reach marriageable age. Then if you perceive in them sound judgement, release their property to them. And do not consume it excessively and quickly, [anticipating] that they will grow up. And whoever, is self-sufficient should refrain; and whoever is poor - let him take according to what is acceptable. Then when you release their property to them, bring witnesses upon them.
