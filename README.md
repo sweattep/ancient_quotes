@@ -499,6 +499,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >O children of Adam! Do not let Satan deceive you as he tempted your parents out of Paradise and caused their cover to be removed in order to expose their nakedness. Surely he and his soldiers watch you from where you cannot see them. We have made the devils allies of those who disbelieve.
 
+> And he to whom Satan is a companion - then evil is he as a companion.
+> 
 >Those who distance themselves from major and offensive sins and when they are angry at those who offend them by words or deeds they forgive their mistake and do not punish them for it. This pardon is a grace they offer when there is goodness and benefit in it.
 
 >Leave Me Alone (to deal) with whom I created lonely (without any wealth or children. And then granted him resources in abundance. And children to be by his side. And made life smooth and comfortable for him.  After all that he desires that I should give more
@@ -644,5 +646,11 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And test the orphans [in their abilities] until they reach marriageable age. Then if you perceive in them sound judgement, release their property to them. And do not consume it excessively and quickly, [anticipating] that they will grow up. And whoever, is self-sufficient should refrain; and whoever is poor - let him take according to what is acceptable. Then when you release their property to them, bring witnesses upon them.
 
 >You will surely be tested in your possessions and in yourselves
+
+>And do not give the weak-minded your property
+
+>And let not their wealth and their children impress you.
+>
+>And [for] their taking of usury while they had been forbidden from it, and their consuming of the people's wealth unjustly. And we have prepared for the disbelievers among them a painful punishment.
 
 >And give to the orphans their properties and do not substitute the defective [of your own] for the good [of theirs]. And do not consume their properties into your own. Indeed, that is ever a great sin.
