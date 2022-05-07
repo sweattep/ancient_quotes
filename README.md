@@ -662,3 +662,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And they ask you what they should spend. Say, "The excess" 
 
 >And whatever strikes you of disaster - it is for what your hands have earned; but He pardons much.
+
+>They said, "If we had known [there would be] fighting, we would have followed you." They were nearer to disbelief that day than to faith, saying with their mouths what was not in their hearts.
+
+>And if two factions among the believers should fight, then make settlement between the two. But if one of them oppresses the other, then fight against the one that oppresses
