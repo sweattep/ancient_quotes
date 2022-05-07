@@ -660,3 +660,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >But their sin is greater than their benefit
 
 >And they ask you what they should spend. Say, "The excess" 
+
+>And whatever strikes you of disaster - it is for what your hands have earned; but He pardons much.
