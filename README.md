@@ -666,3 +666,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >They said, "If we had known [there would be] fighting, we would have followed you." They were nearer to disbelief that day than to faith, saying with their mouths what was not in their hearts.
 
 >And if two factions among the believers should fight, then make settlement between the two. But if one of them oppresses the other, then fight against the one that oppresses
+
+>So let them laugh a little and weep much as recompense for what they used to earn.
