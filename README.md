@@ -668,3 +668,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And if two factions among the believers should fight, then make settlement between the two. But if one of them oppresses the other, then fight against the one that oppresses
 
 >So let them laugh a little and weep much as recompense for what they used to earn.
+
+>How can he have kingship over us while we are more worthy of kingship than him and he has not been given any measure of wealth?
