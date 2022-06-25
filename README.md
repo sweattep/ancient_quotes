@@ -525,6 +525,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >I want to let you bear your sin against me along with your other sins, then you will be one of those destined to the Fire. And that is the reward of the wrongdoers.
 
+>And no bearer of burdens will bear the burden of another. And if a heavily laden soul calls [another] to [carry some of] its load, nothing of it will be carried, even if he should be a close relative. You can only warn those who fear their Lord unseen and have established prayer. And whoever purifies himself only purifies himself for [the benefit of] his soul.
+
 >Those who avoid enormities of sin and abominations, save the unwilled offences - (for them) lo! thy Lord is of vast mercy. He is Best Aware of you (from the time) when He created you from the earth, and when ye were hidden in the bellies of your mothers. Therefor ascribe not purity unto yourselves. He is Best Aware of him who wardeth off (evil).
 
 >And do not become like the woman who, after having painstakingly spun her yarn, caused it to disintegrate into pieces. You resort to oaths as instruments of mutual deceit so that one people might take greater advantage than another
