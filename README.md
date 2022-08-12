@@ -672,3 +672,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >So let them laugh a little and weep much as recompense for what they used to earn.
 
 >How can he have kingship over us while we are more worthy of kingship than him and he has not been given any measure of wealth?
+
+>Every good and perfect gift descends from above, from The Father of lights with whom there is no change nor a shadow of variation.
+
+>The Spirit is The Life Giver; the body does not benefit anything. The words that I speak with you are spirit and life.
