@@ -679,4 +679,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Goodbyes are only for those who love with their eyes. Because for those who love with their heart and their soul there is no such thing as separation
 
+>the ax forgets the tree remembers
 >If we are irritated by every rub, how will we be polished
