@@ -688,3 +688,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >who created you from weakness, then made after weakness strength, then made after strength weakness and white hair
 
 >all human beings were created weak
+
+>Buy and sell until I come.
