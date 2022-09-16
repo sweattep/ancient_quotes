@@ -48,6 +48,8 @@
 
 >Now, son of man, take a sharp sword and use it as a barber's razor to shave your head and your beard. Then take a set of scales and divide up the hair.
 
+>Moreover also I gave them statutes that were not good, and ordinances in which they should not live;
+
 >When you see one who has more, look to one who has less
 
 >But when fear leaves them and they become content, they harm you verbally with abusive sharp tongues
