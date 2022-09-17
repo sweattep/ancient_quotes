@@ -692,3 +692,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >all human beings were created weak
 
 >Buy and sell until I come.
+
+>And this is the basic law of the Temple: absolute holiness!
