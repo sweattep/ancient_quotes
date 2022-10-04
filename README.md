@@ -694,3 +694,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Buy and sell until I come.
 
 >And this is the basic law of the Temple: absolute holiness!
+
+>If one offered for love all the wealth of one's house, it would be utterly scorned.
