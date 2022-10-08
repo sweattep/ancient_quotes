@@ -696,3 +696,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And this is the basic law of the Temple: absolute holiness!
 
 >If one offered for love all the wealth of one's house, it would be utterly scorned.
+
+>be careful when a naked person offers you a shirt
