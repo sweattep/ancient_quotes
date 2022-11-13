@@ -2,6 +2,8 @@
 
 >Strengthen the limp hands and steady the feeble knees!
 
+>You must not be called 'Teacher,' because you are all equal and have only one Teacher
+
 >The balance and scales of justice have their origin in God; all the weights in the bag are His doing
 
 >Ordinary folks are merely a breath, and important people a sham; if you lay them on a balance scale, they go up - both together they are lighter than nothing
