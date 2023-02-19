@@ -1,5 +1,7 @@
 >Cleanse yourself before your own eyes lest another cleanse you.
 
+>know that you are hard and your neck sinew is of iron, and your forehead is brass
+
 >Strengthen the limp hands and steady the feeble knees!
 
 >You must not be called 'Teacher,' because you are all equal and have only one Teacher
