@@ -710,3 +710,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Because it is the jubilee and the fiftieth year. You shall not sow, nor reap the things that grow in the field of their own accord, neither shall you gather the firstfruits of the vines
 
 >And you shall consecrate the fiftieth year and proclaim freedom [for the slaves] throughout the land to all its inhabitants. It shall be a Jubilee (year of remission) for you, and each of you shall return to his own [ancestral] property [that was sold to another because of poverty], and each of you shall return to his family [from whom he was separated by bondage]
+
+>Your evil is to your soul, and to your soul is your righteousness
