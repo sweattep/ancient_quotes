@@ -701,6 +701,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >If one offered for love all the wealth of one's house, it would be utterly scorned.
 
+>Unlike the other high priests, He does not need to offer daily sacrifices
 >be careful when a naked person offers you a shirt
 
 >Health is the greatest gift, contentment is the greatest wealth, a trusted friend is the best relative
