@@ -714,3 +714,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Your evil is to your soul, and to your soul is your righteousness
 
 >who made us, who gives ideas in the night
+
+>sometimes a person needs what he does not own and he owns what he does not need
