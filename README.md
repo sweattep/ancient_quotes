@@ -1,5 +1,7 @@
 >Cleanse yourself before your own eyes lest another cleanse you.
 
+>Why waste your money on what really isn't food?
+
 >know that you are hard and your neck sinew is of iron, and your forehead is brass
 
 >Strengthen the limp hands and steady the feeble knees!
