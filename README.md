@@ -722,3 +722,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >sometimes a person needs what he does not own and he owns what he does not need
 
 >The skinny cows ate the fat ones
+
+>Cush causes her hands to run to God.
