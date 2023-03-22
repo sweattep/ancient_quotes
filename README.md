@@ -726,3 +726,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Cush causes her hands to run to God.
 
 >You shall not be afraid of the reproach of man, and you shall not tremble at their insults
+
+>Like a moth, you destroy what we treasure most.
