@@ -724,3 +724,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >The skinny cows ate the fat ones
 
 >Cush causes her hands to run to God.
+
+>You shall not be afraid of the reproach of man, and you shall not tremble at their insults
