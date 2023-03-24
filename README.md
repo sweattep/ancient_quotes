@@ -728,3 +728,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >You shall not be afraid of the reproach of man, and you shall not tremble at their insults
 
 >Like a moth, you destroy what we treasure most.
+
+>But when he gave them from His bounty, they were stingy with it and turned away while they refused. So He penalized them with hypocrisy in their hearts until the Day they will meet Him
