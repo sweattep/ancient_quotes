@@ -732,3 +732,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >But when he gave them from His bounty, they were stingy with it and turned away while they refused. So He penalized them with hypocrisy in their hearts until the Day they will meet Him
 
 >It won't obey anyone. It won't accept discipline.
+
+>Lo, in His holy ones He putteth no credence, And the heavens have not been pure in His eyes.
