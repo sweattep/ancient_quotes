@@ -736,3 +736,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Lo, in His holy ones He putteth no credence, And the heavens have not been pure in His eyes.
 
 >Should I prostrate to one You created from clay?
+
+>For beware of wrath when abundance entices you; don't let a big bribe turn you aside
+
+>God rescues the afflicted by their affliction and opens their ears in oppression
