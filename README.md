@@ -560,6 +560,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Keep yourself content with those who call upon their Lord, morning and evening, seeking His pleasure, and do not let your eyes pass beyond them. 
 
+>Who causes glad songs to ring out at night
+
 >Do you seek the pomp and glitter of the world? Do not follow him whose heart We have caused to be heedless of Our remembrance, and who follows his desires, and whose attitude is of excess.
 
 >Souls have been naturally created with greed and miserliness, and will not be keen to give up any right.
