@@ -1,6 +1,9 @@
 >Cleanse yourself before your own eyes lest another cleanse you.
 
+>Tension is who you think you should be. Relaxation is who you are.
+
 >Defend where there is no attack
+
 >Why waste your money on what really isn't food?
 
 >know that you are hard and your neck sinew is of iron, and your forehead is brass
