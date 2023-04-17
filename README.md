@@ -18,6 +18,8 @@
 
 >TEKEL means that you have been weighed on the scales and found deficient
 
+>He will break them down; he will not build them up.
+
 >By your strength you set up the mountains. You are clothed with power.
 
 >Behold, his strength in his waist, and his power in the muscles of his belly.
