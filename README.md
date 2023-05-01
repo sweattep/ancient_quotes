@@ -750,3 +750,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >For beware of wrath when abundance entices you; don't let a big bribe turn you aside
 
 >God rescues the afflicted by their affliction and opens their ears in oppression
+
+>if you ever get enough money, you may buy your own freedom
