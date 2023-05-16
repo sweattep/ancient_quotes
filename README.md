@@ -1,5 +1,7 @@
 >Cleanse yourself before your own eyes lest another cleanse you.
 
+>follow not [personal] inclination, lest you not be just
+ 
 >Tension is who you think you should be. Relaxation is who you are.
 
 >Defend where there is no attack
