@@ -756,3 +756,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >if you ever get enough money, you may buy your own freedom
 
 >And those whose scales are heavy - it is they who are the successful. But those whose scales are light - those are the ones who have lost their souls
+
+>And none rejects Our signs except everyone treacherous and ungrateful.
+
+>When you stop destroying, you will be destroyed; when you tire of betraying, they will betray you.
