@@ -723,6 +723,12 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Health is the greatest gift, contentment is the greatest wealth, a trusted friend is the best relative
 
+>let not the worldly life delude you and be not deceived 
+
+>mankind, fear your Lord and fear a Day when no father will avail his son, nor will a son avail his father at all
+
+>Every time they are returned to disbelief, they fall back into it
+
 >And so it shall come to pass, that when the jubilee, that is, the fiftieth year of remission, is come, the distribution made by the lots shall be confounded, and the possession of the one shall pass to the others.
 
 >Because it is the jubilee and the fiftieth year. You shall not sow, nor reap the things that grow in the field of their own accord, neither shall you gather the firstfruits of the vines
