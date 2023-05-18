@@ -768,3 +768,13 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And none rejects Our signs except everyone treacherous and ungrateful.
 
 >When you stop destroying, you will be destroyed; when you tire of betraying, they will betray you.
+
+>Who will be My helpers
+
+>Are you satisfied with the life of this world
+
+>Who will champion my cause against the wicked?
+
+>Can unjust judges be allied with you
+
+>Pay back the proud as they deserve
