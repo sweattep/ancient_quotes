@@ -778,3 +778,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Can unjust judges be allied with you
 
 >Pay back the proud as they deserve
+
+>I don't collect praise from men, but I do know you
+
+>Do you know who will accuse you? Moshe, the very one you have counted on!
