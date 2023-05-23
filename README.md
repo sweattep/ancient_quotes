@@ -793,6 +793,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Those whose deeds have become worthless in this world and in the Hereafter, and it is they who are the losers.
 
+>Woe to them for what their hands have written and woe to them for what they earn.
+
 >And wretched is that for which they sold themselves, if they only knew.
 
 >And give the women their gifts graciously. But if they give up willingly to you anything of it, then take it in satisfaction and ease.
