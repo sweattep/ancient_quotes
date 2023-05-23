@@ -2,6 +2,8 @@
 
 >follow not [personal] inclination, lest you not be just
  
+>As for those who do not believe in the Hereafter, We have certainly made their deeds appealing to them, so they wander blindly.
+
 >Tension is who you think you should be. Relaxation is who you are.
 
 >Defend where there is no attack
