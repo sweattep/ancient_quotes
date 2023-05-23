@@ -8,6 +8,22 @@
 
 >Defend where there is no attack
 
+> Indeed, those who came with falsehood are a group among you. Do not think it bad for you; rather it is good for you
+
+>Corruption has appeared throughout the land and sea by what the hands of people have earned so He may let them taste part of what they have done
+
+>And those who harm believing men and believing women for other than what they have earned have certainly born upon themselves a slander and manifest sin.
+
+>And there will appear to them the evils they had earned, and they will be enveloped by what they used to ridicule.
+
+>And the evil consequences of what they earned struck them. And those who have wronged of these will be afflicted by the evil consequences of what they earned; and they will not cause failure.
+
+>This Day every soul will be recompensed for what it earned. No injustice today!
+
+>And whatever strikes you of disaster - it is for what your hands have earned; but He pardons much.
+
+>Or He could destroy them for what they earned; but He pardons much.
+>
 >Why waste your money on what really isn't food?
 
 >know that you are hard and your neck sinew is of iron, and your forehead is brass
