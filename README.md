@@ -792,3 +792,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And whoever is an ally to them among you – then indeed, he is of them.
 
 >Those whose deeds have become worthless in this world and in the Hereafter, and it is they who are the losers.
+
+>And wretched is that for which they sold themselves, if they only knew.
+
+>And give the women their gifts graciously. But if they give up willingly to you anything of it, then take it in satisfaction and ease.
