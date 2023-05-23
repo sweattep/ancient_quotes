@@ -786,3 +786,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Do you know who will accuse you? Moshe, the very one you have counted on!
 
 >So do not fear the people
+
+>And do not obey every worthless habitual swearer
+
+>And whoever is an ally to them among you – then indeed, he is of them.
+
+>Those whose deeds have become worthless in this world and in the Hereafter, and it is they who are the losers.
