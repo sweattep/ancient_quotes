@@ -462,10 +462,12 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Let their table be a snare before them, and their reward a stumbling block.
 
 >do not let the hatred of a people prevent you from being just. Be just
->
+
 >I sigh when food is put before me, and my groans pour out like water.
 
->Yeshua said to them, “My personal food is that I do the will of him who has sent me and finish His work
+>Yeshua said to them, My personal food is that I do the will of him who has sent me and finish His work
+
+>Do not consume one another's wealth unjustly but only [in lawful] business by mutual consent. And do not kill yourselves
 
 >Therefore, remember where you were before you fell, and turn from this sin, and do what you used to do before.
 
