@@ -585,6 +585,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Whoever kills a person not (to retaliate) for a per-son killed nor (to punish) for spreading disorder in the earth, is as if he has killed the whole mankind, and whoever saves the life of a person is as if he has saved the life of the whole mankind. 
 
+>you were enemies and He brought your hearts together and you became, by His favor, brothers. And you were on the edge of a pit of the Fire, and He saved you from it.
+
 >Remain and be close with your poor companions who sincerely call on their Lord in worship and supplication at the beginning and at the end of the day. Do not let your eyes overlook them intending to sit with people of affluence and prestige. Do not follow the one whose heart I have made neglectful of Our remembrance by sealing it and who instructed you to remove the poor from your gathering giving preference to following his desire over following His Lord. His actions and deeds are thus foolish, excessive and in vain.
 
 >Believers, avoid being excessively suspicious, for some suspicion is a sin. Do not spy, nor backbite one another.
