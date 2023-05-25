@@ -16,6 +16,14 @@
 
 >And there will appear to them the evils they had earned, and they will be enveloped by what they used to ridicule.
 
+>We will not exchange our oath for a price, even if he should be a near relative
+
+>If they gain dominance over you, they do not observe concerning you any pact of kinship or covenant of protection? They satisfy you with their mouths, but their hearts refuse
+
+>will you take him and his descendants as allies other than Me while they are enemies to you?
+
+>That is more suitable that they should be content and not grieve and that they should be satisfied with what you have given them
+
 >And the evil consequences of what they earned struck them. And those who have wronged of these will be afflicted by the evil consequences of what they earned; and they will not cause failure.
 
 >This Day every soul will be recompensed for what it earned. No injustice today!
