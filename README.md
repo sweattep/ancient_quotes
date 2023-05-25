@@ -8,7 +8,13 @@
 
 >Defend where there is no attack
 
-> Indeed, those who came with falsehood are a group among you. Do not think it bad for you; rather it is good for you
+>those who wrong follow their desires without knowledge.
+
+>Who created you, then provided for you, then will cause you to die, and then will give you life. Are there any of your "partners" who does anything of that?
+
+>Indeed, those who came with falsehood are a group among you. Do not think it bad for you; rather it is good for you
+
+>Indeed, many associates oppress one another, except for those who believe and do righteous deeds - and few are they
 
 >Corruption has appeared throughout the land and sea by what the hands of people have earned so He may let them taste part of what they have done
 
