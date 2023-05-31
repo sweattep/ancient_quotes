@@ -551,6 +551,16 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Uphold the faith and do not divide into factions within it
 
+>And they ask you what they should spend. Say, "The excess"
+
+>And give the relative his right, and the poor and the traveler, and do not spend wastefully.
+
+>The patient, the true, the obedient, those who spend, and those who seek forgiveness before dawn.
+
+>This is what you hoarded for yourselves, so taste what you used to hoard.
+
+>They do not await except one blast which will seize them while they are disputing.
+
 >As high as the sky is above the earth are my ways higher than your ways, and my thoughts higher than your thoughts
  
 >But if his shirt is torn from behind, then that is an indication that he is truthful, because she was trying to seduce him whilst he was running away; and she will be lying.
