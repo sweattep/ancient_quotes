@@ -1,5 +1,9 @@
 >Cleanse yourself before your own eyes lest another cleanse you.
 
+>Work according to your position, indeed, I am working
+
+>There is not among us any except that he has a known position
+
 >follow not [personal] inclination, lest you not be just
  
 >They are clothing for you and you are clothing for them
