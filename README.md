@@ -852,3 +852,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And wretched is that for which they sold themselves, if they only knew.
 
 >And give the women their gifts graciously. But if they give up willingly to you anything of it, then take it in satisfaction and ease.
+
+>Never will I allow to be lost the work of [any] worker among you, whether male or female; you are of one another.
+
+>So those who emigrated or were evicted from their homes or were harmed in My cause or fought or were killed - I will surely remove from them their misdeeds
+
+>those who wronged pursued what luxury they were given
