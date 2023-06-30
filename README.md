@@ -10,6 +10,8 @@
 
 >We will not allow to be lost the reward of any who did well in deeds.
 
+>Should we believe two men like ourselves while their people are for us in servitude?
+
 >And indeed, every time I invited them that You may forgive them, they put their fingers in their ears, covered themselves with their garments, persisted, and were arrogant
 
 >As for those who do not believe in the Hereafter, We have certainly made their deeds appealing to them, so they wander blindly.
