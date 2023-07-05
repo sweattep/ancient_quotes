@@ -1,5 +1,7 @@
 >Cleanse yourself before your own eyes lest another cleanse you.
 
+>we turn to a pure meal that includes no living thing.
+
 >Work according to your position, indeed, I am working
 
 >There is not among us any except that he has a known position
