@@ -4,6 +4,8 @@
 
 >Work according to your position, indeed, I am working
 
+>The very stones and wood in your home will testify against you.
+
 >There is not among us any except that he has a known position
 
 >follow not [personal] inclination, lest you not be just
