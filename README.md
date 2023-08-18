@@ -4,6 +4,8 @@
 
 >Work according to your position, indeed, I am working
 
+>What was your answer to the messenger?
+
 >The very stones and wood in your home will testify against you.
 
 >There is not among us any except that he has a known position
