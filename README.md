@@ -16,6 +16,8 @@
 
 >We will not allow to be lost the reward of any who did well in deeds.
 
+>There is no end to the writing of books
+
 >Should we believe two men like ourselves while their people are for us in servitude?
 
 >And indeed, every time I invited them that You may forgive them, they put their fingers in their ears, covered themselves with their garments, persisted, and were arrogant
