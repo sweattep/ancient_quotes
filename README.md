@@ -1,5 +1,7 @@
 >Cleanse yourself before your own eyes lest another cleanse you.
 
+>What is the worldly life except the enjoyment of delusion
+
 >we turn to a pure meal that includes no living thing.
 
 >Work according to your position, indeed, I am working
