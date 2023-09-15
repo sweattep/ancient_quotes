@@ -10,6 +10,8 @@
 
 >The very stones and wood in your home will testify against you.
 
+>And leave those who practice deviation concerning His name
+
 >There is not among us any except that he has a known position
 
 >follow not [personal] inclination, lest you not be just
