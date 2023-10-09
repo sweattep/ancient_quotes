@@ -24,11 +24,15 @@
 
 >It was an invasion more severe than there had ever benn before or will ever be again.
 
->But it is for this very reason that I have kept you alive &emdash; to show you my power
+>But it is for this very reason that I have kept you alive &mdash; to show you my power
 
 >Should we believe two men like ourselves while their people are for us in servitude?
 
 >And indeed, every time I invited them that You may forgive them, they put their fingers in their ears, covered themselves with their garments, persisted, and were arrogant
+
+>Won't the Egyptians stone us to death if before their very eyes we sacrific what they consider an abomination?
+
+>The magicians tried with their secret arts to produce lice, but they couldn't.
 
 >As for those who do not believe in the Hereafter, We have certainly made their deeds appealing to them, so they wander blindly.
 
