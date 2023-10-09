@@ -30,7 +30,7 @@
 
 >And indeed, every time I invited them that You may forgive them, they put their fingers in their ears, covered themselves with their garments, persisted, and were arrogant
 
->Won't the Egyptians stone us to death if before their very eyes we sacrific what they consider an abomination?
+>Won't the Egyptians stone us to death if before their very eyes we sacrifice what they consider an abomination?
 
 >The magicians tried with their secret arts to produce lice, but they couldn't.
 
