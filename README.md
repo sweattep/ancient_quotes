@@ -22,6 +22,10 @@
 
 >There is no end to the writing of books
 
+>It was an invasion more severe than there had ever benn before or will ever be again.
+
+>But it is for this very reason that I have kept you alive &emdash; to show you my power
+
 >Should we believe two men like ourselves while their people are for us in servitude?
 
 >And indeed, every time I invited them that You may forgive them, they put their fingers in their ears, covered themselves with their garments, persisted, and were arrogant
