@@ -882,3 +882,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >So those who emigrated or were evicted from their homes or were harmed in My cause or fought or were killed - I will surely remove from them their misdeeds
 
 >those who wronged pursued what luxury they were given
+
+>"Legends of the former peoples." No! Rather, the stain has covered their hearts
