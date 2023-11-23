@@ -884,3 +884,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >those who wronged pursued what luxury they were given
 
 >"Legends of the former peoples." No! Rather, the stain has covered their hearts
+
+>it is not because of you I act
