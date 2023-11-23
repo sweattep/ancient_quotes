@@ -886,3 +886,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >"Legends of the former peoples." No! Rather, the stain has covered their hearts
 
 >it is not because of you I act
+
+>punish all who worship like pagans and who steal and kill in order to fill their master's house with loot
+
+>all the merchants will disappear and those who count money will be removed.
