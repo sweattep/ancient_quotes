@@ -56,6 +56,8 @@
 
 >We will not exchange our oath for a price, even if he should be a near relative
 
+>Or what payment shall a man give to regain his soul again
+
 >If they gain dominance over you, they do not observe concerning you any pact of kinship or covenant of protection? They satisfy you with their mouths, but their hearts refuse
 
 >will you take him and his descendants as allies other than Me while they are enemies to you?
