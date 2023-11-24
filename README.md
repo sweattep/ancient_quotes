@@ -317,6 +317,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Formerly the master selected the slave; today the slave selects his master
 
+>those who dwell on the earth will rejoice over them and make merry and exchange presents, because these two prophets had been a torment to those who dwell on the earth
+
 >a slave owned by quarreling partners and another belonging exclusively to one man - are they equal in comparison
 
 >My son, keep the flower of thine age sound; and give not thy strength to strangers. When thou hast gotten a fruitful possession through all the field, sow it with thine own seed, trusting in the goodness of thy stock. So thy race which thou leavest shall be magnified, having the confidence of their good descent.
