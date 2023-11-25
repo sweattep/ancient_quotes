@@ -898,3 +898,21 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >all the merchants will disappear and those who count money will be removed.
 
 >as a plant which produces its offshoots and strengthens them so they grow firm and stand upon their stalks
+
+>Show me what they have created of the earth; or did they have partnership in [creation of] the heavens?
+
+>We do not charge any soul except [with that within] its capacity.
+
+>So fulfill the measure and weight and do not deprive people of their due and cause not corruption upon the earth after its reformation.
+
+>If there is a good deed, He multiplies it
+
+>Those are the ones who disbelieve in the verses of their Lord and in [their] meeting Him, so their deeds have become worthless
+
+>And We place the scales of justice for the Day of Resurrection, so no soul will be treated unjustly at all. And if there is [even] the weight of a mustard seed, We will bring it forth. And sufficient are We as accountant.
+
+>Indeed mankind, to his Lord, is ungrateful. And indeed he is, in love of wealth, intense.
+
+>So whoever does an atom's weight of good will see it, And whoever does an atom's weight of evil will see it.
+
+>And establish weight in justice and do not make deficient the balance.
