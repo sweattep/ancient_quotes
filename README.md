@@ -894,3 +894,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >punish all who worship like pagans and who steal and kill in order to fill their master's house with loot
 
 >all the merchants will disappear and those who count money will be removed.
+
+>as a plant which produces its offshoots and strengthens them so they grow firm and stand upon their stalks
