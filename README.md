@@ -30,6 +30,8 @@
 
 >And indeed, every time I invited them that You may forgive them, they put their fingers in their ears, covered themselves with their garments, persisted, and were arrogant
 
+>Divide ten into two parts in such a way that one part multiplied by the other and the product, or result, taken four times, will be equal to the product of one part by itself.
+
 >Won't the Egyptians stone us to death if before their very eyes we sacrifice what they consider an abomination?
 
 >The magicians tried with their secret arts to produce lice, but they couldn't.
