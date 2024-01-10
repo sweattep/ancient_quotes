@@ -918,3 +918,39 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >So whoever does an atom's weight of good will see it, And whoever does an atom's weight of evil will see it.
 
 >And establish weight in justice and do not make deficient the balance.
+
+>He had shown you that which you love. Among you are some who desire this world, and among you are some who desire the Hereafter
+
+>test what is in your breasts and purify what is in your hearts
+
+>To each of you We prescribed a law and a method
+
+>test you through something of the game
+
+>He may try you through what He has given you
+
+>We give them trial because they were defiantly disobedient
+
+>He might test the believers
+
+>He might test you as to which of you is best in deed
+
+>We have made that which is on the earth adornment
+
+>worldly life by which We test them.
+
+>This is from the favor of my Lord to test me whether I will be grateful or ungrateful.
+
+>test some of you by means of others
+
+>We will surely test you until We make evident those who strive
+
+>We will test your affairs
+
+>Who created death and life to test you
+
+>We created man from a sperm-drop mixture that We may try him
+
+>We might test them therein. And whoever turns away from the remembrance of his Lord He will put into arduous punishment
+
+>Every soul will taste death. And We test you with evil and with good as trial; and to Us you will be returned.
