@@ -15,7 +15,9 @@
 >There is not among us any except that he has a known position
 
 >follow not [personal] inclination, lest you not be just
- 
+
+>Who, when disaster strikes them, say, "Indeed we belong"
+
 >They are clothing for you and you are clothing for them
 
 >We will not allow to be lost the reward of any who did well in deeds.
