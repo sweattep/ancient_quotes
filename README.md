@@ -16,6 +16,8 @@
 
 >And leave those who practice deviation concerning His name
 
+>And the shriek seized those who had wronged
+
 >There is not among us any except that he has a known position
 
 >follow not [personal] inclination, lest you not be just
