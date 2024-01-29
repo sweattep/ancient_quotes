@@ -2,6 +2,10 @@
 
 >What is the worldly life except the enjoyment of delusion
 
+>Take what is given freely, enjoin what is good, and turn away from the ignorant.
+
+>Ask Me not for that about which you have no knowledge. Indeed, I advise you, lest you be among the ignorant.
+
 >we turn to a pure meal that includes no living thing.
 
 >Work according to your position, indeed, I am working
