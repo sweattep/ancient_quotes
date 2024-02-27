@@ -962,3 +962,6 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >We might test them therein. And whoever turns away from the remembrance of his Lord He will put into arduous punishment
 
 >Every soul will taste death. And We test you with evil and with good as trial; and to Us you will be returned.
+
+>Our messengers are with them recording
+>Our messengers are with them recordingOur messengers are with them recording
