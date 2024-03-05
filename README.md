@@ -28,6 +28,8 @@
 
 >We will not allow to be lost the reward of any who did well in deeds.
 
+>He knows that among you is weakness.
+
 >There is no end to the writing of books
 
 >It was an invasion more severe than there had ever benn before or will ever be again.
