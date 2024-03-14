@@ -970,3 +970,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Shall I inform you upon whom the devils descend?  They descend upon every sinful liar. They pass on what is heard, and most of them are liars.
 
 >We raise in degrees whom We will, but over every possessor of knowledge is one [more] knowing.
+
+>He will surely make evident the liars.
+
+>And those who disbelieve say to those who believe, "Follow our way, and we will carry your sins." But they will not carry anything of their sins. Indeed, they are liars.
+
+>they will swear to Him as they swear to you and think that they are [standing] on something. Unquestionably, it is they who are the liars.
