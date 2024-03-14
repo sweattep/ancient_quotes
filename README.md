@@ -966,4 +966,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Every soul will taste death. And We test you with evil and with good as trial; and to Us you will be returned.
 
 >Our messengers are with them recording
->Our messengers are with them recordingOur messengers are with them recording
+
+>Shall I inform you upon whom the devils descend?  They descend upon every sinful liar. They pass on what is heard, and most of them are liars.
+
+>We raise in degrees whom We will, but over every possessor of knowledge is one [more] knowing.
