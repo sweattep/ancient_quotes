@@ -1,3 +1,5 @@
+>you have finished betraying, you will be betrayed
+
 >Cleanse yourself before your own eyes lest another cleanse you.
 
 >What is the worldly life except the enjoyment of delusion
