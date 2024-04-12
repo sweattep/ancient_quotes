@@ -2,7 +2,7 @@
 
 >Finishing is better than starting.
 
-Patience is better than pride
+>Patience is better than pride
 
 >Cleanse yourself before your own eyes lest another cleanse you.
 
