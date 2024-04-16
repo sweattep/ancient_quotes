@@ -1,5 +1,15 @@
 >you have finished betraying, you will be betrayed
 
+>do not grant the desires of the wicked; do not let them achieve their goals.
+
+>If your goals are good, you will be respected, but if you are looking for trouble, that is what you will get.
+
+>What goal do I have that I would want to prolong my life?
+
+>A person with understanding has wisdom as his objective, but a fool looks only to earthly goals.
+
+>he keeps wicked people from reaching their goal
+
 >Finishing is better than starting.
 
 >Patience is better than pride
