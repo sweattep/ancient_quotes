@@ -996,3 +996,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And those who disbelieve say to those who believe, "Follow our way, and we will carry your sins." But they will not carry anything of their sins. Indeed, they are liars.
 
 >they will swear to Him as they swear to you and think that they are [standing] on something. Unquestionably, it is they who are the liars.
+
+>O people, we have been taught the language of birds, and we have been given from all things. Indeed, this is evident bounty.
