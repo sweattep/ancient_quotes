@@ -1,5 +1,7 @@
 >you have finished betraying, you will be betrayed
 
+>If you [have reason to] fear from a people betrayal, throw [their treaty] back to them, [putting you] on equal terms
+
 >do not grant the desires of the wicked; do not let them achieve their goals.
 
 >If your goals are good, you will be respected, but if you are looking for trouble, that is what you will get.
