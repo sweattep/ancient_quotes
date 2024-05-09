@@ -1004,3 +1004,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Let our lord now command your servants who are before you to seek out a man who is skillful in playing the lyre, and when the harmful spirit from God is upon you, he will play it, and you will be well.”
 
 >the singers in front, the musicians last, between them virgins playing tambourines:
+
+>Sons of men, how long will you obscure my honor, love emptiness and seek lies: forever?
+
+>Because the sentence against an evil deed is not executed speedily, the heart of the children of man is fully set to do evil.
+
+>May he judge your people with righteousness, and your poor with justice!
