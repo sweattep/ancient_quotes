@@ -2,6 +2,8 @@
 
 >he killed them, shedding blood of war in peacetime
 
+>And thou shalt bring down his hoar head
+
 >For the evil of those who dwell in it the beasts and the birds are swept away
 
 >If you [have reason to] fear from a people betrayal, throw [their treaty] back to them, [putting you] on equal terms
