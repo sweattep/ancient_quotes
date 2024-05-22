@@ -68,6 +68,22 @@
 
 >Won't the Egyptians stone us to death if before their very eyes we sacrifice what they consider an abomination?
 
+>educated in all the wisdom of the Egyptians
+
+>It is senseless to pay to educate a fool, since he has no heart for learning
+
+>Trying to educate stupid people is a waste of time
+
+>And those who are educated don't always lead successful lives.
+
+>They must be healthy, handsome, smart, wise, educated, and fit
+
+>Your education is your life &mdash; guard it well
+
+>And if you live right, education will help you to know even more
+
+>educate me and I shall live
+
 >The magicians tried with their secret arts to produce lice, but they couldn't.
 
 >As for those who do not believe in the Hereafter, We have certainly made their deeds appealing to them, so they wander blindly.
