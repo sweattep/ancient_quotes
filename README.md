@@ -493,6 +493,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >All their neighbors helped them by giving them many things: silver utensils, gold, supplies, pack animals, other valuables, and offerings for the Temple.
 
+>Behold, to obey is better than sacrifice
+ 
 >It is not the healthy who need a doctor, but the sick. But go and learn what this means: 'I desire mercy, not sacrifice.'
 
 >Is any good you may have done at all helpful to Him?
