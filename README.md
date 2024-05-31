@@ -1023,6 +1023,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >they will swear to Him as they swear to you and think that they are [standing] on something. Unquestionably, it is they who are the liars.
 
+>do not make difficulties for them in order to take [back] part of what you gave them unless they commit a clear immorality.
+
 >O people, we have been taught the language of birds, and we have been given from all things. Indeed, this is evident bounty.
 
 >Let our lord now command your servants who are before you to seek out a man who is skillful in playing the lyre, and when the harmful spirit from God is upon you, he will play it, and you will be well.”
