@@ -10,6 +10,12 @@
 
 >do not grant the desires of the wicked; do not let them achieve their goals.
 
+>you shall teach them diligently to your children and speak of them when you sit at home and when you walk along the road, when you lie down and when you get up.
+
+>cooperate in righteousness and piety, but do not cooperate in sin and aggression
+
+>a partner in their wealth and their children and promise them. But Satan does not promise them except delusion.
+
 >If your goals are good, you will be respected, but if you are looking for trouble, that is what you will get.
 
 >What goal do I have that I would want to prolong my life?
