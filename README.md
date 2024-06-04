@@ -547,7 +547,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >But you, return to your God, and keep grace and judgment; expect your God constantly
 
->I have waited for good and evil came; I have waited for the light, and blackness came
+>I go about darkened, but not by the sun; I stand up in the assembly and cry for help.
 
 >And like a Servant who waits for the shade, and like a hired man who waits to finish his work
 
