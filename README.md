@@ -4,6 +4,8 @@
 
 >And thou shalt bring down his hoar head
 
+>It is not right to take the children’s bread and toss it to the dogs.
+
 >For the evil of those who dwell in it the beasts and the birds are swept away
 
 >If you [have reason to] fear from a people betrayal, throw [their treaty] back to them, [putting you] on equal terms
