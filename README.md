@@ -14,6 +14,20 @@
 
 >you shall teach them diligently to your children and speak of them when you sit at home and when you walk along the road, when you lie down and when you get up.
 
+>Woe to the foolish prophets who are following their own spirit and have seen nothing.
+
+>Woe to the worthless shepherd Who leaves the flock! A sword will be on his arm And on his right eye! His arm will be totally withered And his right eye will be blind.
+
+>Woe to you who long for the Day of the LORD! What will the Day of the LORD be for you? It will be darkness and not light. 19It will be like a man who flees from a lion, only to encounter a bear, or who enters his house and rests his hand against the wall, only to be bitten by a snake. Will not the Day of the LORD be darkness and not light, even gloom with no brightness in it?
+
+>Woe to those who scheme iniquity, Who work out evil on their beds! When morning comes, they do it, For it is in the power of their hands.
+
+>Woe to him who gets evil gain for his house To put his nest on high, To be delivered from the hand of calamity!
+
+>Woe to the bloody city, completely full of lies and pillage; Her prey never departs.
+
+>Woe to the city that is rebellious and defiled, the oppressive city!
+
 >cooperate in righteousness and piety, but do not cooperate in sin and aggression
 
 >a partner in their wealth and their children and promise them. But Satan does not promise them except delusion.
