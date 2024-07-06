@@ -38,6 +38,8 @@
 
 >A person with understanding has wisdom as his objective, but a fool looks only to earthly goals.
 
+>We taught him the fashioning of coats of armor to protect you
+
 >he keeps wicked people from reaching their goal
 
 >Finishing is better than starting.
