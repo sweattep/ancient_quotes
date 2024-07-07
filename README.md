@@ -1,5 +1,7 @@
 >you have finished betraying, you will be betrayed
 
+>You are proud, when you ought to feel bad enough to chase away anyone who acts like this.
+
 >he killed them, shedding blood of war in peacetime
 
 >And thou shalt bring down his hoar head
