@@ -1066,3 +1066,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Because the sentence against an evil deed is not executed speedily, the heart of the children of man is fully set to do evil.
 
 >May he judge your people with righteousness, and your poor with justice!
+
+>So woe to those who pray  who are heedless of their prayer - Those who make show  And withhold   assistance.
