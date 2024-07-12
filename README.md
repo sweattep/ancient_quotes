@@ -315,6 +315,8 @@ Therefore strengthen your limp hands and weak knees.
 
 >For I tell you, unless your righteousness is far greater than that of the teachers and separated ones, you will certainly not enter the Kingdom of Heaven!
 
+>Indeed, those who have believed and done righteous deeds - their Lord will guide them because of their faith.
+
 >Your wickedness can affect only others like you, and your righteousness only other human beings.
 
 >If he were to take back man's heart to himself, if he gathered to himself his spirit and breath; all flesh would instantly perish, everyone would return to dust.
