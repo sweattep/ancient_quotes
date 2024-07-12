@@ -473,6 +473,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >I have walked in your road without blemish. When will you come to me? I have walked in the perfection of my heart within my house.
 
+>where there are prophecies, they will cease; where there are tongues, they will be stilled; where there is knowledge, it will pass away.
+
 >But what could I say? For he himself sent this sickness. Now I will walk humbly throughout my years because of this anguish I have felt.
 
 >I will run in the way of Your commandments, for You broaden my understanding.
