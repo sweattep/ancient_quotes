@@ -202,6 +202,8 @@
 
 >Come away quickly, my beloved. Run like a gazelle or a young stag on the mountains of spices.
 
+>your fathers, your sons, your brothers, your wives, your relatives, wealth which you have obtained, commerce wherein you fear decline, and dwellings with which you are pleased are more beloved to you
+
 >Do not make unlawful the wholesome things which God has made lawful for you, but commit no excess for God does not love those given to excess.
 
 >On the seventh day they must shave off all their hair; they must shave their head, their beard, their eyebrows and the rest of their hair. They must wash their clothes and bathe themselves with water, and they will be clean.
