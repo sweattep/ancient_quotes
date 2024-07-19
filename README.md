@@ -1,5 +1,7 @@
 >you have finished betraying, you will be betrayed
 
+>as long as they are upright toward you, be upright toward them
+>
 >You are proud, when you ought to feel bad enough to chase away anyone who acts like this.
 
 >he killed them, shedding blood of war in peacetime
