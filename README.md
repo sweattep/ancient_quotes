@@ -855,6 +855,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >And [for] their taking of usury while they had been forbidden from it, and their consuming of the people's wealth unjustly. And we have prepared for the disbelievers among them a painful punishment.
 
+>Your Lord will spread out for you of His mercy and will prepare for you from your affair facility.
+
 >And give to the orphans their properties and do not substitute the defective [of your own] for the good [of theirs]. And do not consume their properties into your own. Indeed, that is ever a great sin.
 
 >How [can there be a treaty] while, if they gain dominance over you, they do not observe concerning you any pact of kinship or covenant of protection? They satisfy you with their mouths, but their hearts refuse [compliance], and most of them are defiantly disobedient.
