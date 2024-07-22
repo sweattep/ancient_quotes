@@ -661,6 +661,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Ask all the people of the land and the priests, When you fasted and mourned in the fifth and seventh months for the past seventy years, was it really for me that you fasted?
 
+>But exclude the outer court of the temple; do not measure it, for it has been handed over to the Gentiles, who will trample the holy city for forty-two months.
+
 >O my people, I ask no recompense of you for it: My reward is with Him who created me
 
 >Better is a name than good perfume, And the day of death than the day of birth.
