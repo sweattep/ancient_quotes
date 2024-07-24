@@ -44,6 +44,8 @@
 
 >We taught him the fashioning of coats of armor to protect you
 
+>nor do they tread on any ground that enrages the disbelievers, nor do they inflict upon an enemy any infliction but that is registered for them as a righteous deed.
+
 >he keeps wicked people from reaching their goal
 
 >Finishing is better than starting.
