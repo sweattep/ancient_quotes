@@ -1082,3 +1082,13 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >May he judge your people with righteousness, and your poor with justice!
 
 >So woe to those who pray  who are heedless of their prayer - Those who make show  And withhold   assistance.
+
+>And among them are those who listen to you. But can you cause the deaf to hear, although they will not use reason?
+
+>And he threw down the tablets and seized his brother by [the hair of] his head, pulling him toward him.
+
+>O my people, did your Lord not make you a good promise?
+
+>Would you exchange what is better for what is less? Go
+
+>There is no deity except You; exalted are You. Indeed, I have been of the wrongdoers.
