@@ -967,6 +967,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Pay back the proud as they deserve
 
+>And you laugh and do not weep While you are proudly sporting?
+
 >I don't collect praise from men, but I do know you
 
 >Do you know who will accuse you? Moshe, the very one you have counted on!
