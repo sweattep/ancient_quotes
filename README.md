@@ -1039,7 +1039,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >We have made that which is on the earth adornment
 
->worldly life by which We test them.
+>worldly life by which We test them
+
+>the king did not listen to the people
 
 >This is from the favor of my Lord to test me whether I will be grateful or ungrateful.
 
@@ -1094,3 +1096,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Would you exchange what is better for what is less? Go
 
 >There is no deity except You; exalted are You. Indeed, I have been of the wrongdoers.
+
+>His going forth is from the end of the heaven, and his circuit to the ends of it: and there is nothing hid from the heat thereof.
