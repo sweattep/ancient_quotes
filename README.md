@@ -1098,3 +1098,13 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >There is no deity except You; exalted are You. Indeed, I have been of the wrongdoers.
 
 >His going forth is from the end of the heaven, and his circuit to the ends of it: and there is nothing hid from the heat thereof.
+
+>I am writing to you not because you don't know the truth but because you know the difference between truth and lies.
+
+>It is not because of your righteousness or your integrity that you are going in to take possession of their land
+
+>If any nation comes to fight you, it is not because I sent them.
+
+>If any nation comes to fight you, it is not because I sent them.
+
+>So I in turn have made you despised and humiliated before all the people, because you have not kept My ways, but have shown partiality in matters of the law.
