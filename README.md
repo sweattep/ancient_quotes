@@ -1065,6 +1065,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Shall I inform you upon whom the devils descend?  They descend upon every sinful liar. They pass on what is heard, and most of them are liars.
 
+>And to whom I granted extensive wealth And children present [with him] And spread [everything] before him, easing [his life].Then he desires that I should add more. No! Indeed, he has been toward Our verses obstinate. I will cover him with arduous torment. Indeed, he thought and deliberated. So may he be destroyed [for] how he deliberated.
+
 >We raise in degrees whom We will, but over every possessor of knowledge is one [more] knowing.
 
 >He will surely make evident the liars.
