@@ -214,6 +214,8 @@
 
 >On the seventh day they must shave off all their hair; they must shave their head, their beard, their eyebrows and the rest of their hair. They must wash their clothes and bathe themselves with water, and they will be clean.
 
+>Our Lord, if the Prophet had spoken a great word to you, it was right for you to do it, but behold, the answer is a little one. He said to you: ‘Go wash and be purified.’
+
 >Now, son of man, take a sharp sword and use it as a barber's razor to shave your head and your beard. Then take a set of scales and divide up the hair.
 
 >Moreover also I gave them statutes that were not good, and ordinances in which they should not live;
