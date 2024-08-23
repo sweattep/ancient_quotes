@@ -907,6 +907,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >For the law appoints men in their weakness
 
+>To each of you We prescribed a law and a method.
+
 >An ignorant [person] would think them self-sufficient because of their restraint, but you will know them by their [characteristic] sign.
 
 >If one offered for love all the wealth of one's house, it would be utterly scorned.
