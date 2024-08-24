@@ -689,6 +689,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >The patient, the true, the obedient, those who spend, and those who seek forgiveness before dawn.
 
+>Then your light will break forth like the dawn, and your healing will come quickly. Your righteousness will go before you, and the glory of the LORD will be your rear guard. 9Then you will call, and the LORD will answer; you will cry out, and He will say, ‘Here I am.’ If you remove the yoke from your midst, the pointing of the finger and malicious talk, 10and if you give yourself to the hungry and satisfy the afflicted soul, then your light will go forth in the darkness, and your night will be like noonda
 >This is what you hoarded for yourselves, so taste what you used to hoard.
 
 >They do not await except one blast which will seize them while they are disputing.
