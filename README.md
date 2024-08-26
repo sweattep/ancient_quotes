@@ -1119,3 +1119,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >If any nation comes to fight you, it is not because I sent them.
 
 >So I in turn have made you despised and humiliated before all the people, because you have not kept My ways, but have shown partiality in matters of the law.
+
+>Walk, my children,  in long-suffering, in meekness, honesty, in provocation, in grief, in faith and in truth
