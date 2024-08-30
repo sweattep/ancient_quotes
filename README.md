@@ -441,6 +441,12 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Sometimes you can become rich by being generous, or poor by being greedy.
 
+>Until when We seize their affluent ones with punishment, at once they are crying
+
+>But did We not grant you life enough for whoever would remember therein to remember, and the warner had come to you?
+
+>there is not for the wrongdoers any helper.
+
 >They will always be remembered and greatly praised, because they were kind and freely gave to the poor
 >But the midwives feared Elohim, and did not do as the sovereign of Mitsrayim commanded them, and kept the male children alive.
 
