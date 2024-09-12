@@ -86,6 +86,10 @@
 
 >He knows that among you is weakness.
 
+>So if there are from you one hundred [who are] steadfast, they will overcome two hundred. And if there are among you a thousand, they will overcome two thousand
+
+>And We have enjoined upon man [care] for his parents. His mother carried him, [increasing her] in weakness upon weakness, and his weaning is in two years. Be grateful to Me and to your parents; to Me is the [final] destination.
+
 >There is no end to the writing of books
 
 >It was an invasion more severe than there had ever benn before or will ever be again.
