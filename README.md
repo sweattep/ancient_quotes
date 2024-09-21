@@ -12,6 +12,8 @@
 
 >It is not right to take the children’s bread and toss it to the dogs.
 
+>No one knows the form by which I ensure victory
+
 >For the evil of those who dwell in it the beasts and the birds are swept away
 
 >If you [have reason to] fear from a people betrayal, throw [their treaty] back to them, [putting you] on equal terms
