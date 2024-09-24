@@ -2,6 +2,8 @@
 
 >as long as they are upright toward you, be upright toward them
 
+>Preach an acceptable year
+
 >You are proud, when you ought to feel bad enough to chase away anyone who acts like this.
 
 >no man shall see as I have seen
