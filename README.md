@@ -1134,4 +1134,6 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >So I in turn have made you despised and humiliated before all the people, because you have not kept My ways, but have shown partiality in matters of the law.
 
->Walk, my children,  in long-suffering, in meekness, honesty, in provocation, in grief, in faith and in truth
+>Walk, my children, in long-suffering, in meekness, honesty, in provocation, in grief, in faith and in truth
+
+>which is the mother of us all?
