@@ -1096,6 +1096,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >And the poets - [only] the deviators follow them; Do you not see that in every valley they roam. And that they say what they do not do?
 
+>But they say, "[The revelation is but] a mixture of false dreams; rather, he has invented it; rather, he is a poet. So let him bring us a sign just as the previous [messengers] were sent [with miracles]."
+
 >And those who disbelieve say to those who believe, "Follow our way, and we will carry your sins." But they will not carry anything of their sins. Indeed, they are liars.
 
 >they will swear to Him as they swear to you and think that they are [standing] on something. Unquestionably, it is they who are the liars.
