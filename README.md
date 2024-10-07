@@ -1092,6 +1092,10 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >He will surely make evident the liars.
 
+>Shall I inform you upon whom the devils descend? They descend upon every sinful liar. They pass on what is heard, and most of them are liars.
+
+>And the poets - [only] the deviators follow them; Do you not see that in every valley they roam. And that they say what they do not do?
+
 >And those who disbelieve say to those who believe, "Follow our way, and we will carry your sins." But they will not carry anything of their sins. Indeed, they are liars.
 
 >they will swear to Him as they swear to you and think that they are [standing] on something. Unquestionably, it is they who are the liars.
