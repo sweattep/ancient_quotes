@@ -1143,3 +1143,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Walk, my children, in long-suffering, in meekness, honesty, in provocation, in grief, in faith and in truth
 
 >which is the mother of us all?
+
+>the slave does not know what his master is doing
