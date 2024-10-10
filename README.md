@@ -641,6 +641,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Before your very eyes I will take your wives and give them to another, and he will lie with them in broad daylight. You have acted in secret, but I will do this thing in broad daylight before all Israel.
 
+>Did you bring Me sacrifices and offerings forty years in the wilderness, O house of Israel?
+
 >If you had not plowed with my heifer, you would not have solved my riddle.
 
 >You are not to make a covenant with them or with their gods.
