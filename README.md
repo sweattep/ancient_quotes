@@ -6,6 +6,8 @@
 
 >You are proud, when you ought to feel bad enough to chase away anyone who acts like this.
 
+>will prayers and holy offerings take away thy wickedness from thee
+
 >no man shall see as I have seen
 
 >he killed them, shedding blood of war in peacetime
