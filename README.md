@@ -802,7 +802,11 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Do not strut arrogantly about the earth: you cannot break it open, nor match the mountains in height.
 
+>And he was arrogant, he and his soldiers, in the land, without right, and they thought that they would not be returned to Us.
+ 
 >And when they encounter those who have attained faith, they say, "We have attained faith." But when they are alone with their Satans, they say, "We are indeed with you; we are only ridiculing."
+
+>Perhaps my Lord will guide me to the sound way.
 
 >But all things We have enumerated in writing.
 
