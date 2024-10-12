@@ -934,6 +934,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >An ignorant [person] would think them self-sufficient because of their restraint, but you will know them by their [characteristic] sign.
 
+>And when they see a sign, they ridicule
+
 >If one offered for love all the wealth of one's house, it would be utterly scorned.
 
 >Unlike the other high priests, He does not need to offer daily sacrifices
