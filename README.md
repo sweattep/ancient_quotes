@@ -1153,3 +1153,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >which is the mother of us all?
 
 >the slave does not know what his master is doing
+
+>whoever intercedes for a good cause will have a reward therefrom; and whoever intercedes for an evil cause will have a burden therefrom
