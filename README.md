@@ -1128,6 +1128,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >So woe to those who pray  who are heedless of their prayer - Those who make show  And withhold   assistance.
 
+>prayer prohibits immorality 
+
 >And among them are those who listen to you. But can you cause the deaf to hear, although they will not use reason?
 
 >And he threw down the tablets and seized his brother by [the hair of] his head, pulling him toward him.
