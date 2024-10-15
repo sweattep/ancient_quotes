@@ -8,6 +8,8 @@
 
 >will prayers and holy offerings take away thy wickedness from thee
 
+>And from [part of] the night, pray
+
 >no man shall see as I have seen
 
 >he killed them, shedding blood of war in peacetime
