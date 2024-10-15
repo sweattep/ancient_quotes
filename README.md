@@ -1130,6 +1130,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >prayer prohibits immorality 
 
+>What would my Lord care for you if not for your supplication
+
 >And among them are those who listen to you. But can you cause the deaf to hear, although they will not use reason?
 
 >And he threw down the tablets and seized his brother by [the hair of] his head, pulling him toward him.
