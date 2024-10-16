@@ -988,6 +988,21 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >And those whose scales are heavy - it is they who are the successful. But those whose scales are light - those are the ones who have lost their souls
 
+>But there came after them successors who neglected prayer and pursued desires; so they are going to meet evil
+
+>We ask you not for provision; We provide for you
+
+>excellent is the protector, and excellent is the helper
+
+>abide in your houses and do not display yourselves
+
+>remove from you the impurity
+
+>You can only warn those who fear their Lord unseen and have established prayer
+
+>expect a profit that will never perish
+
+>leave trade. That is better for you, if you only knew.
 >And none rejects Our signs except everyone treacherous and ungrateful.
 
 >When you stop destroying, you will be destroyed; when you tire of betraying, they will betray you.
