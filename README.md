@@ -262,6 +262,8 @@
 
 >Speak the truth, do not yield to anger; give, if thou art asked for little; by these three steps thou wilt go near the gods.
 
+>And they intended for him harm, but We made them the greatest losers.
+
 >If I am walking with two other men, each of them will serve as my teacher. I will pick out the good points of the one and imitate them, and the bad points of the other and correct them in myself.
 
 >To see and listen to the wicked is already the beginning of wickedness.
