@@ -140,6 +140,8 @@
 
 >Who created you, then provided for you, then will cause you to die, and then will give you life. Are there any of your "partners" who does anything of that?
 
+>We created you in pairs
+
 >Indeed, those who came with falsehood are a group among you. Do not think it bad for you; rather it is good for you
 
 >Indeed, many associates oppress one another, except for those who believe and do righteous deeds - and few are they
