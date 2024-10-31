@@ -12,6 +12,8 @@
 
 >no man shall see as I have seen
 
+>man found guilty of sexual intercourse
+
 >he killed them, shedding blood of war in peacetime
 
 >And thou shalt bring down his hoar head
