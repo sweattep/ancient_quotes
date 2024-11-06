@@ -16,6 +16,8 @@
 
 >he killed them, shedding blood of war in peacetime
 
+>the soul at death reaches the throat
+
 >And thou shalt bring down his hoar head
 
 >It is not right to take the children’s bread and toss it to the dogs.
