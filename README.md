@@ -968,9 +968,13 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >And so it shall come to pass, that when the jubilee, that is, the fiftieth year of remission, is come, the distribution made by the lots shall be confounded, and the possession of the one shall pass to the others.
 
+>This is the manner of remission: every creditor shall release what he has loaned
+
 >Because it is the jubilee and the fiftieth year. You shall not sow, nor reap the things that grow in the field of their own accord, neither shall you gather the firstfruits of the vines
 
 >And you shall consecrate the fiftieth year and proclaim freedom [for the slaves] throughout the land to all its inhabitants. It shall be a Jubilee (year of remission) for you, and each of you shall return to his own [ancestral] property [that was sold to another because of poverty], and each of you shall return to his family [from whom he was separated by bondage]
+
+>He that is loose and slack in his work, is the brother of him that wasteth his own works.
 
 >Your evil is to your soul, and to your soul is your righteousness
 
