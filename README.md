@@ -30,6 +30,8 @@
 
 >do not grant the desires of the wicked; do not let them achieve their goals.
 
+>Do not be so distressed about the boy
+>
 >you shall teach them diligently to your children and speak of them when you sit at home and when you walk along the road, when you lie down and when you get up.
 
 >Woe to the foolish prophets who are following their own spirit and have seen nothing.
@@ -159,6 +161,8 @@
 >We will not exchange our oath for a price, even if he should be a near relative
 
 >Or what payment shall a man give to regain his soul again
+
+>I do not ask of you for it any payment - only that whoever wills might take to his Lord a way.
 
 >If they gain dominance over you, they do not observe concerning you any pact of kinship or covenant of protection? They satisfy you with their mouths, but their hearts refuse
 
