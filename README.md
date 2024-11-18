@@ -1198,3 +1198,9 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >the slave does not know what his master is doing
 
 >whoever intercedes for a good cause will have a reward therefrom; and whoever intercedes for an evil cause will have a burden therefrom
+
+>A branch cannot produce any fruit by itself
+
+>How do I bear your pressure, and your burden, and your strife by myself?
+
+>I have much more to say to you, more than you can now bear.
