@@ -1089,6 +1089,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >And establish weight in justice and do not make deficient the balance.
 
+>give full measure when you measure, and weigh with an even balance
+
 >He had shown you that which you love. Among you are some who desire this world, and among you are some who desire the Hereafter
 
 >test what is in your breasts and purify what is in your hearts
@@ -1116,6 +1118,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >test some of you by means of others
 
 >We will surely test you until We make evident those who strive
+
+>strive with their wealth and their lives
 
 >We will test your affairs
 
