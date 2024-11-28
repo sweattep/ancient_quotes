@@ -488,6 +488,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >He that hath small understanding, and feareth God, is better than one that hath much wisdom, and transgresseth the law of the most High.
 
+>Then We fulfilled for them the promise, and We saved them and whom We willed and destroyed the transgressors.
+
 >Who shall praise the most High in the grave, instead of them which live and give thanks?
 
 >Every man from his youth is given to evil; neither could they make to themselves fleshy hearts for stony.
