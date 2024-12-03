@@ -389,6 +389,10 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Your heart was lifted up because of your beauty; you corrupted your wisdom for the sake of your splendor. But I have thrown you on the ground; before kings I have made you a spectacle.
 
+>all will be thrown down
+
+>here today and gone tomorrow
+
 >For man made them, and he that borrowed his own spirit fashioned them: but no man can make a god like unto himself. For being mortal, he worketh a dead thing with wicked hands: for he himself is better than the things which he worshippeth: whereas he lived once, but they never. Yea, they worshipped those beasts also that are most hateful: for being compared together, some are worse than others. Neither are they beautiful, so much as to be desired in respect of beasts: but they went without the praise of God and his blessing. Therefore by the like were they punished worthily, and by the multitude of beasts tormented.
 
 >For wisdom, which is the worker of all things, taught me: for in her is an understanding spirit holy, one only, manifold, subtil, lively, clear, undefiled, plain, not subject to hurt, loving the thing that is good quick, which cannot be letted, ready to do good, Kind to man, steadfast, sure, free from care, having all power, overseeing all things, and going through all understanding, pure, and most subtil, spirits. For wisdom is more moving than any motion: she passeth and goeth through all things by reason of her pureness. For she is the breath of the power of God, and a pure influence flowing from the glory of the Almighty: therefore can no defiled thing fall into her. For she is the brightness of the everlasting light, the unspotted mirror of the power of God, and the image of his goodness. And being but one, she can do all things: and remaining in herself, she maketh all things new: and in all ages entering into holy souls, she maketh them friends of God, and prophets.
