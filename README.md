@@ -1214,3 +1214,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >How do I bear your pressure, and your burden, and your strife by myself?
 
 >I have much more to say to you, more than you can now bear.
+
+>go to the bee, and learn how diligent she is, and how earnestly she is engaged in her work; whose labours kings and private men use for health, and she is desired and respected by all: though weak in body, she is advanced by honouring wisdom.
