@@ -1051,6 +1051,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >So do not fear the people
 
+>so fear them not, but fear Me.
+ 
 >And do not obey every worthless habitual swearer
 
 >And whoever is an ally to them among you – then indeed, he is of them.
