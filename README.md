@@ -232,6 +232,8 @@
 
 >your fathers, your sons, your brothers, your wives, your relatives, wealth which you have obtained, commerce wherein you fear decline, and dwellings with which you are pleased are more beloved to you
 
+>enter your dwellings that you not be crushed
+
 >Do not make unlawful the wholesome things which God has made lawful for you, but commit no excess for God does not love those given to excess.
 
 >On the seventh day they must shave off all their hair; they must shave their head, their beard, their eyebrows and the rest of their hair. They must wash their clothes and bathe themselves with water, and they will be clean.
@@ -259,6 +261,8 @@
 >Let a wise man blow off the impurities of his self, as a smith blows off the impurities of silver, one by one, little by little, and from time to time.
 
 >Lead others, not by violence, but by righteousness and equity. He who possesses virtue and intelligence, who is just, speaks the truth, and does what is his own business, him the world will hold dear. As the bee collects nectar and departs without injuring the flower, or its color or scent, so let a sage dwell in the community.
+
+>your Lord inspired to the bee
 
 >If a traveler does not meet with one who is his better, or his equal, let him firmly keep to his solitary journey; there is no companionship with fools. Long is the night to him who is awake; long is a mile to him who is tired; long is life to the foolish who do not know the true religion. Better than living a hundred years not seeing the highest truth, is one day in the life of a man who sees the highest truth.
 
