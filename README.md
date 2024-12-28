@@ -252,6 +252,8 @@
 
 >The extinction of evil desire is the highest religion
 
+>We will surely drive you out of our land, or you must return to our religion.
+
 >Do not let my heart be drawn to any evil thing or take part in works of wickedness with men who do iniquity; let me not feast on their delicacies.
 
 >For all nations have drunk of the wine of the wrath of her fornication, and the kings of the earth have committed fornication with her, and the merchants of the earth are waxed rich through the abundance of her delicacies
