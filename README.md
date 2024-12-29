@@ -266,6 +266,8 @@
 
 >your Lord inspired to the bee
 
+>We inspired to them the doing of good deeds, establishment of prayer, and giving of zakah; and they were worshippers of Us.
+
 >If a traveler does not meet with one who is his better, or his equal, let him firmly keep to his solitary journey; there is no companionship with fools. Long is the night to him who is awake; long is a mile to him who is tired; long is life to the foolish who do not know the true religion. Better than living a hundred years not seeing the highest truth, is one day in the life of a man who sees the highest truth.
 
 >The tenth hindrance is ignorance. When all other difficulties are conquered this will even remain, the thorn in the flesh of the wise and good, the last enemy and the bitterest foe of man.
