@@ -16,6 +16,8 @@
 
 >he killed them, shedding blood of war in peacetime
 
+>whether evil is intended for those on earth or whether their Lord intends
+
 >the soul at death reaches the throat
 
 >And thou shalt bring down his hoar head
