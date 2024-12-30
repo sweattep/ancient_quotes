@@ -369,6 +369,8 @@ Therefore strengthen your limp hands and weak knees.
 
 >Someone who is already wise will hear and learn still more; someone who already understands will gain the ability to counsel well; he will understand proverbs, obscure expressions, the sayings and riddles of the wise.
 
+>riddle a riddle and parable a parable upon those of the house
+
 >Glean from rich fields, and the armies will have enough to eat
 
 >When you cut your vineyard, you do not glean behind you; it is for the sojourner, for the fatherless, and for the widow;
