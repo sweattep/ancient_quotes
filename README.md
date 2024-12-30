@@ -627,6 +627,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Ransom me from the oppression of man, and I observe Your precepts
 
+>for the oppressed among men, women and children who cannot devise a plan
+
 >My father! If the prophet had asked you to do something really difficult, wouldn't you have done it? So, doesn't it make even more sense to do what he says, when it's only, 'Bathe, and be clean'?
 
 >Surely none who wait for You will be put to shame; but those who are faithless without cause will be disgraced.
