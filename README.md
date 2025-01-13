@@ -4,6 +4,8 @@
 
 >Preach an acceptable year
 
+>Pursue some path, however narrow and crooked, in which you can walk with love and reverence.
+
 >You are proud, when you ought to feel bad enough to chase away anyone who acts like this.
 
 >will prayers and holy offerings take away thy wickedness from thee
