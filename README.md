@@ -1238,3 +1238,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >go to the bee, and learn how diligent she is, and how earnestly she is engaged in her work; whose labours kings and private men use for health, and she is desired and respected by all: though weak in body, she is advanced by honouring wisdom.
 
 >I say that in all things that a man presumes, I also presume.
+
+>Because of the news that is coming. Every heart will melt, and every hand will become weak. Every spirit will be discouraged, and all knees will run with urine. Yes, it is coming and it will happen.
+
+>
