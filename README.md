@@ -952,6 +952,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Every good and perfect gift descends from above, from The Father of lights with whom there is no change nor a shadow of variation.
 
+>We have created everything, perfectly preordained
+
 >The Spirit is The Life Giver; the body does not benefit anything. The words that I speak with you are spirit and life.
 
 >Goodbyes are only for those who love with their eyes. Because for those who love with their heart and their soul there is no such thing as separation
