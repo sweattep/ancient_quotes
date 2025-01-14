@@ -719,6 +719,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >But the just Lord is in the midst of her, and he will never do an unjust thing: morning by morning he will bring out his judgment to the light, and it is not hidden, and he knows not injustice by extortion, nor injustice in strife.
 
+>O mankind, your injustice is only against yourselves
+
 >The people ask, "Why should we fast if the Lord never notices? Why should we go without food if he pays no attention?" The Lord says to them, "The truth is that at the same time you fast, you pursue your own interests and oppress your workers."
 
 >But they showed contempt and went, one to his field, and another to his commerce. But the rest seized, abused and killed his servants.
