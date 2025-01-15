@@ -8,6 +8,8 @@
 
 >You are proud, when you ought to feel bad enough to chase away anyone who acts like this.
 
+>competition in increase of wealth and children - like the example of a rain whose [resulting] plant growth pleases the tillers; then it dries and you see it turned yellow;
+
 >will prayers and holy offerings take away thy wickedness from thee
 
 >And from [part of] the night, pray
