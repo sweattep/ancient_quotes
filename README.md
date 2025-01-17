@@ -393,6 +393,8 @@ Therefore strengthen your limp hands and weak knees.
 
 >The idols of the nations are mere gold and silver, made by human hands. They have mouths, but they can't speak; they have eyes, but they can't see; they have ears, but they can't listen; and they have no breath in the mouths; The people who make them will become like them, along with everyone who trusts in them.
 
+>Burn their idols. Don't ever long for the silver and gold on these idols or take any of it for yourselves. It might be a trap for you.
+
 >Ordinary folks are merely a breath and important people a sham; if you lay them on the balance-scale, they go up - both together are lighter than nothing.
 
 >It lets nothing remain and leaves nothing
@@ -774,8 +776,10 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >And when I have proportioned him and breathed into him of My [created] soul, then fall down to him in prostration.
 
 > And he to whom Satan is a companion - then evil is he as a companion.
-> 
+
 >Those who distance themselves from major and offensive sins and when they are angry at those who offend them by words or deeds they forgive their mistake and do not punish them for it. This pardon is a grace they offer when there is goodness and benefit in it.
+
+>Do not forgive their iniquity and let not their sin be blotted out before Thee, for they have demoralized the builders.
 
 >Leave Me Alone (to deal) with whom I created lonely (without any wealth or children. And then granted him resources in abundance. And children to be by his side. And made life smooth and comfortable for him.  After all that he desires that I should give more
 
