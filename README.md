@@ -1202,6 +1202,10 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >the singers in front, the musicians last, between them virgins playing tambourines:
 
+>Better to be lowly and have a servant than to play the great man and lack bread.
+
+>One pretends to be rich, yet has nothing; another pretends to be poor, yet has great wealth.
+
 >Sons of men, how long will you obscure my honor, love emptiness and seek lies: forever?
 
 >Because the sentence against an evil deed is not executed speedily, the heart of the children of man is fully set to do evil.
