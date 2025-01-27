@@ -4,6 +4,8 @@
 
 >Preach an acceptable year
 
+>And everything they did is in written records.
+
 >Pursue some path, however narrow and crooked, in which you can walk with love and reverence.
 
 >You are proud, when you ought to feel bad enough to chase away anyone who acts like this.
