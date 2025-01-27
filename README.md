@@ -2,6 +2,8 @@
 
 >as long as they are upright toward you, be upright toward them
 
+>our command you did not know
+
 >Preach an acceptable year
 
 >And everything they did is in written records.
