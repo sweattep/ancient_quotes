@@ -1266,4 +1266,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Because of the news that is coming. Every heart will melt, and every hand will become weak. Every spirit will be discouraged, and all knees will run with urine. Yes, it is coming and it will happen.
 
+>an excellent pattern for anyone
+
+>present to them an example
 >
+>He presents to you an example from yourselves.
