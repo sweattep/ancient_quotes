@@ -32,6 +32,8 @@
 
 >It is not right to take the children’s bread and toss it to the dogs.
 
+>For who were those who heard and angered him?
+
 >No one knows the form by which I ensure victory
 
 >For the evil of those who dwell in it the beasts and the birds are swept away
