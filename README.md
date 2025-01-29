@@ -168,6 +168,8 @@
 
 >And those who harm believing men and believing women for other than what they have earned have certainly born upon themselves a slander and manifest sin.
 
+>If he is touched by good, he is reassured by it; but if he is struck by trial, he turns on his face [to the other direction]. He has lost [this] world and the Hereafter. That is what is the manifest loss.
+
 >And there will appear to them the evils they had earned, and they will be enveloped by what they used to ridicule.
 
 >We will not exchange our oath for a price, even if he should be a near relative
