@@ -6,6 +6,8 @@
 
 >Preach an acceptable year
 
+>do this as one people speaking the same language
+
 >And everything they did is in written records.
 
 >Pursue some path, however narrow and crooked, in which you can walk with love and reverence.
