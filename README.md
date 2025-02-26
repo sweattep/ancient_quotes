@@ -28,6 +28,11 @@
 
 >whether evil is intended for those on earth or whether their Lord intends
 
+>They must reap in fields that are not their own and gather late grapes in the vineyards of the wicked. They pass the night without clothing, naked,
+uncovered in the cold, wet with mountain rain, and hugging the rock for lack of shelter. There are those who pluck orphans from the breast
+and [those who] take [the clothes of] the poor in pledge, so that they go about stripped, unclothed; they go hungry, as they carry sheaves [of grain]; between these men’s rows [of olives], they make oil; treading their winepresses, they suffer thirst. Men are groaning in the city,
+the mortally wounded are crying for help
+
 >the soul at death reaches the throat
 
 >And thou shalt bring down his hoar head
