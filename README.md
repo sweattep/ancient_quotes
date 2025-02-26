@@ -52,7 +52,7 @@
 
 >Woe to the worthless shepherd Who leaves the flock! A sword will be on his arm And on his right eye! His arm will be totally withered And his right eye will be blind.
 
->Woe to you who long for the Day of the LORD! What will the Day of the LORD be for you? It will be darkness and not light. 19It will be like a man who flees from a lion, only to encounter a bear, or who enters his house and rests his hand against the wall, only to be bitten by a snake. Will not the Day of the LORD be darkness and not light, even gloom with no brightness in it?
+>Woe to you who long for the Day of the LORD! What will the Day of the LORD be for you? It will be darkness and not light. It will be like a man who flees from a lion, only to encounter a bear, or who enters his house and rests his hand against the wall, only to be bitten by a snake. Will not the Day of the LORD be darkness and not light, even gloom with no brightness in it?
 
 >Woe to those who scheme iniquity, Who work out evil on their beds! When morning comes, they do it, For it is in the power of their hands.
 
