@@ -418,6 +418,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >All who live on earth are counted as nothing. He does what he wishes with the army of heaven and with those living on earth. No one can hold back his hand or ask him, "What are you doing?"
 
+>In fact, there was so much grain that they stopped keeping record, because it was like counting the grains of sand along the beach.
+
 >Nevertheless I will tell you what is written in the Book of Truth. There is no one standing with me against them except Michael your prince
 
 >Your heart was lifted up because of your beauty; you corrupted your wisdom for the sake of your splendor. But I have thrown you on the ground; before kings I have made you a spectacle.
