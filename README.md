@@ -6,6 +6,10 @@
 
 >Preach an acceptable year
 
+>There is a path before each person
+
+>turn the hearts of the parents to their children
+
 >do this as one people speaking the same language
 
 >And everything they did is in written records.
