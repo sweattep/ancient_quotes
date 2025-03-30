@@ -187,6 +187,8 @@ the mortally wounded are crying for help
 
 >Or what payment shall a man give to regain his soul again
 
+>For the soul is more important than food, and the body than clothing
+
 >I do not ask of you for it any payment - only that whoever wills might take to his Lord a way.
 
 >If they gain dominance over you, they do not observe concerning you any pact of kinship or covenant of protection? They satisfy you with their mouths, but their hearts refuse
