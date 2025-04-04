@@ -16,6 +16,8 @@
 
 >Pursue some path, however narrow and crooked, in which you can walk with love and reverence.
 
+>I taught you writing and wisdom and the Torah and the Gospel
+
 >You are proud, when you ought to feel bad enough to chase away anyone who acts like this.
 
 >competition in increase of wealth and children - like the example of a rain whose [resulting] plant growth pleases the tillers; then it dries and you see it turned yellow;
@@ -36,6 +38,8 @@
 uncovered in the cold, wet with mountain rain, and hugging the rock for lack of shelter. There are those who pluck orphans from the breast
 and [those who] take [the clothes of] the poor in pledge, so that they go about stripped, unclothed; they go hungry, as they carry sheaves [of grain]; between these men’s rows [of olives], they make oil; treading their winepresses, they suffer thirst. Men are groaning in the city,
 the mortally wounded are crying for help
+
+>satisfy the breasts of a believing people
 
 >the soul at death reaches the throat
 
