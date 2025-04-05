@@ -203,12 +203,14 @@ the mortally wounded are crying for help
 
 >And the evil consequences of what they earned struck them. And those who have wronged of these will be afflicted by the evil consequences of what they earned; and they will not cause failure.
 
+>who will be sorry to see you fail
+
 >This Day every soul will be recompensed for what it earned. No injustice today!
 
 >And whatever strikes you of disaster - it is for what your hands have earned; but He pardons much.
 
 >Or He could destroy them for what they earned; but He pardons much.
->
+
 >Why waste your money on what really isn't food?
 
 >know that you are hard and your neck sinew is of iron, and your forehead is brass
