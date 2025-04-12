@@ -854,6 +854,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >He and his purchaser will then count the time from the year he sold himself up to the Year of Jubilee. The price of his sale will be determined by the number of years, based on the daily wages of a hired hand. If many years remain, he must pay for his redemption in proportion to his purchase price. If only a few years remain until the Year of Jubilee, he is to calculate and pay his redemption according to his remaining years. He shall be treated like a man hired from year to year, but a foreign owner must not rule over him harshly in your sight.
 
+>a slave has said to his owner, “you are not my owner” 
+
 >Indeed many who live together commit excesses, one to the other, except those that believe and act righteously; and they are but few.
 
 >As for man, when his Lord tests him, and thus gives him honour and bounties, he says, "My Lord has honoured me." But when he tests him, and thus straitens his provision for him, he says, "My Lord has disgraced me. No! But you do not honour the orphan, and do not encourage one another to feed the needy, And you devour the inheritance with a sweeping gulp, and love wealth, with an excessive love.
