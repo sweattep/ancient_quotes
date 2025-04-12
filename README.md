@@ -8,7 +8,11 @@
 
 >There is a path before each person
 
+>a moderate community
+
 >turn the hearts of the parents to their children
+
+>And do not obey every worthless habitual swearer
 
 >do this as one people speaking the same language
 
