@@ -71,6 +71,8 @@ the mortally wounded are crying for help
 
 >Woe to you who long for the Day of the LORD! What will the Day of the LORD be for you? It will be darkness and not light. It will be like a man who flees from a lion, only to encounter a bear, or who enters his house and rests his hand against the wall, only to be bitten by a snake. Will not the Day of the LORD be darkness and not light, even gloom with no brightness in it?
 
+>He will devise plans against strongholds, but only for a time [decreed by God].
+
 >Woe to those who scheme iniquity, Who work out evil on their beds! When morning comes, they do it, For it is in the power of their hands.
 
 >Woe to him who gets evil gain for his house To put his nest on high, To be delivered from the hand of calamity!
@@ -1077,6 +1079,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >Should I prostrate to one You created from clay?
 
 >For beware of wrath when abundance entices you; don't let a big bribe turn you aside
+
+>As for the law and the testimony, if they do not speak according to this word, it is because they do not receive a bribe for it.
 
 >God rescues the afflicted by their affliction and opens their ears in oppression
 
