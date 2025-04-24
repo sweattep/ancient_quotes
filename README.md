@@ -487,6 +487,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >As is the lust of an eunuch to deflower a virgin; so is he that executeth judgment with violence.
 
+>Whoever does not carry his own execution-stake and come after me cannot be my talmid.
+
 >Let not the greediness of the belly nor lust of the flesh take hold of me; and give not over me thy servant into an impudent mind. Hear, O ye children, the discipline of the mouth: he that keepeth it shall never be taken in his lips.
 
 >The worldling nourishes his body, but the wise man nourishes his mind. He who indulges in the satisfaction of his appetites works his own destruction; but he who walks in the path will have both the salvation from evil and a prolongation of life.
