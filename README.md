@@ -1155,6 +1155,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >all the merchants will disappear and those who count money will be removed.
 
+>you know that it was not with perishable things such as silver or gold that you were redeemed from the empty way of life handed down to you from your ancestors,
+
 >as a plant which produces its offshoots and strengthens them so they grow firm and stand upon their stalks
 
 >Show me what they have created of the earth; or did they have partnership in [creation of] the heavens?
