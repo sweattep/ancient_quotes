@@ -195,6 +195,8 @@ the mortally wounded are crying for help
 
 >We will not exchange our oath for a price, even if he should be a near relative
 
+>he gives in exchange for his life, and he escapes
+
 >Or what payment shall a man give to regain his soul again
 
 >For the soul is more important than food, and the body than clothing
