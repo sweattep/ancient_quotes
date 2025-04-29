@@ -1106,7 +1106,10 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >expect a profit that will never perish
 
+>For you know that it was not with perishable things such as silver or gold that you were redeemed from the empty way of life you inherited from your forefathers
+
 >leave trade. That is better for you, if you only knew.
+
 >And none rejects Our signs except everyone treacherous and ungrateful.
 
 >When you stop destroying, you will be destroyed; when you tire of betraying, they will betray you.
