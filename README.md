@@ -1314,5 +1314,14 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >an excellent pattern for anyone
 
 >present to them an example
->
+
 >He presents to you an example from yourselves.
+
+>Later, God condemned the cities of Sodom and Gomorrah and turned them into heaps of ashes. He made them an example of what will happen to ungodly people.
+
+>Now this was the iniquity of your sister Sodom: She and her daughters were arrogant, overfed, and complacent; they did not help the poor and needy.
+
+>But their vine is from the vine of Sodom and from the fields of Gomorrah. Their grapes are poisonous; their clusters are bitter.
+
+>In a similar way, Sodom and Gomorrah and the surrounding towns gave themselves up to sexual immorality and perversion. They serve as an example of those who suffer the punishment of eternal fire.
+
