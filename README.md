@@ -81,6 +81,8 @@ the mortally wounded are crying for help
 
 >Woe to the city that is rebellious and defiled, the oppressive city!
 
+>Say to those who have disbelieved [that] if they cease, what has previously occurred will be forgiven for them. But if they return [to hostility] - then the precedent of the former [rebellious] peoples has already taken place.
+
 >cooperate in righteousness and piety, but do not cooperate in sin and aggression
 
 >a partner in their wealth and their children and promise them. But Satan does not promise them except delusion.
