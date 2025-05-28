@@ -1,5 +1,7 @@
 >you have finished betraying, you will be betrayed
 
+>indeed, your plan is great
+
 >as long as they are upright toward you, be upright toward them
 
 >our command you did not know
