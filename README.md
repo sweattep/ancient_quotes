@@ -16,6 +16,8 @@
 
 >And do not obey every worthless habitual swearer
 
+>who acquit the guilty for a bribe, but deny justice for the innocent
+
 >do this as one people speaking the same language
 
 >And everything they did is in written records.
