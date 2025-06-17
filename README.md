@@ -1334,3 +1334,12 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >In a similar way, Sodom and Gomorrah and the surrounding towns gave themselves up to sexual immorality and perversion. They serve as an example of those who suffer the punishment of eternal fire.
 
+>In war, truth is the first casualty.
+
+>The unjust gain is never secure
+
+>The judge is condemned when the guilty is acquitted.
+
+>He who allows oppression shares the crime.
+
+>What is done cannot be undone, but one can prevent it happening again
