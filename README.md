@@ -18,6 +18,8 @@
 
 >When the wind is mild, do not raise your sail too high
 
+>Small wind, big waves
+
 >And do not obey every worthless habitual swearer
 
 >who acquit the guilty for a bribe, but deny justice for the innocent
