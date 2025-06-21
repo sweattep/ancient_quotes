@@ -14,6 +14,8 @@
 
 >turn the hearts of the parents to their children
 
+>let go of the raft once youve crossed the river    
+
 >And do not obey every worthless habitual swearer
 
 >who acquit the guilty for a bribe, but deny justice for the innocent
