@@ -16,6 +16,8 @@
 
 >let go of the raft once youve crossed the river    
 
+>When the wind is mild, do not raise your sail too high
+
 >And do not obey every worthless habitual swearer
 
 >who acquit the guilty for a bribe, but deny justice for the innocent
