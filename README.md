@@ -44,6 +44,8 @@
 
 >man found guilty of sexual intercourse
 
+>would have gladly eaten the carob 
+
 >he killed them, shedding blood of war in peacetime
 
 >whether evil is intended for those on earth or whether their Lord intends
