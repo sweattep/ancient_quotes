@@ -1228,6 +1228,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >strive with their wealth and their lives
 
+>strive in His cause that you may succeed
+
 >We will test your affairs
 
 >Who created death and life to test you
