@@ -8,6 +8,8 @@
 
 >Preach an acceptable year
 
+>for each year among the Egyptians the shrine of Zeus is carried across the river into Libya
+
 >There is a path before each person
 
 >a moderate community
@@ -176,6 +178,8 @@ the mortally wounded are crying for help
 >They must be healthy, handsome, smart, wise, educated, and fit
 
 >Your education is your life &mdash; guard it well
+
+>there gold is obtained in great plenty, huge elephants abound, with wild trees of all sorts, and ebony; and the men are taller, handsomer, and longer lived than anywhere else
 
 >And if you live right, education will help you to know even more
 
