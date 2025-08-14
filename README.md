@@ -711,6 +711,10 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >The men who have been invoking your peace deceived you and prevailed over you and sank your feet into the mud, and they have turned their tail
 
+>The roots of the Tree of the Great Peace extend in four directions. If any man or any nation shall follow the roots to their source, they may trace them with their feet and find shelter beneath the Tree.
+
+>Let the chiefs stand with firm feet beneath the Tree of Peace, holding fast to the laws and customs handed down.
+
 >Even your brother or your son or your daughter or the wife you love or your closest friend may secretly encourage you to worship other gods, gods that you and your ancestors have never worshiped.
 
 >Your allies can't be trusted. They will force you out of your own country. And your best friends will trick and trap you, even before you know it.
