@@ -1363,3 +1363,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >He who allows oppression shares the crime.
 
 >What is done cannot be undone, but one can prevent it happening again
+
+>The impediment to action advances action. What stands in the way becomes the way.
