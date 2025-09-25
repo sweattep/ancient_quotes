@@ -840,6 +840,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >O children of Adam! Do not let Satan deceive you as he tempted your parents out of Paradise and caused their cover to be removed in order to expose their nakedness. Surely he and his soldiers watch you from where you cannot see them. We have made the devils allies of those who disbelieve.
 
+>Are the children of the bridal chamber able to fast as long as the groom is with them?
+
 >And when I have proportioned him and breathed into him of My [created] soul, then fall down to him in prostration.
 
 > And he to whom Satan is a companion - then evil is he as a companion.
