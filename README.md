@@ -1367,3 +1367,7 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >What is done cannot be undone, but one can prevent it happening again
 
 >The impediment to action advances action. What stands in the way becomes the way.
+
+>go about your business, because the meaning of this message will remain secret until the end of time.
+
+>I became sick for days, and I rise, and do the king's work.
