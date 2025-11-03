@@ -1373,3 +1373,19 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >go about your business, because the meaning of this message will remain secret until the end of time.
 
 >I became sick for days, and I rise, and do the king's work.
+
+>If I be shaven, then my strength will go from me; and I shall become weak, and be like any other man
+
+>She seduced him with her talking, that he ate food like a man, that his strength was taken from him, and he became like a human being
+
+>He gave her the tunic steeped in the blood of Nessus; as soon as he put it on, pain burned him, and the poison consumed him
+
+>He set the ring on her finger; they kissed and clung together… yet wit and treachery would bring him to doom
+
+>We are the memory of mankind; by the spoken word we bring to life the deeds and exploits of kings for younger generations
+
+>Whoso speaketh of what concerneth him not shall hear what pleaseth him not!
+
+>O SON OF SPIRIT! The best beloved of all things in My sight is Justice; turn not away therefrom if thou desirest Me, and neglect it not that I may confide in thee
+
+>The first peace, which is the most important, is that which comes within the souls of people when they realize their relationship, their oneness with the universe and all its powers
