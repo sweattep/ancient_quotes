@@ -73,6 +73,8 @@ the mortally wounded are crying for help
 
 >If you [have reason to] fear from a people betrayal, throw [their treaty] back to them, [putting you] on equal terms
 
+>because throwing me out like this is an even worse thing than what you've already done to me!
+
 >do not grant the desires of the wicked; do not let them achieve their goals.
 
 >Do not be so distressed about the boy
