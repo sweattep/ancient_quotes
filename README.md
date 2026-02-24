@@ -715,6 +715,8 @@ will shine like the brightness of the heavens, and those who lead many to righte
 
 >Do not rely on a friend; do not trust in a companion. Seal the doors of your mouth from her who lies in your arms.
 
+>if she is a wall, we will build on her a palace of silver; and if she is a door, we will enclose her with panels of cedar.
+
 >The men who have been invoking your peace deceived you and prevailed over you and sank your feet into the mud, and they have turned their tail
 
 >The roots of the Tree of the Great Peace extend in four directions. If any man or any nation shall follow the roots to their source, they may trace them with their feet and find shelter beneath the Tree.
