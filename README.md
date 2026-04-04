@@ -1393,3 +1393,17 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >O SON OF SPIRIT! The best beloved of all things in My sight is Justice; turn not away therefrom if thou desirest Me, and neglect it not that I may confide in thee
 
 >The first peace, which is the most important, is that which comes within the souls of people when they realize their relationship, their oneness with the universe and all its powers
+
+>"Go to the ant, thou sluggard; consider her ways, and be wise: which having no guide, overseer, or ruler, provideth her meat in the summer, and gathereth her food in the harvest."
+
+>"The ants are a people not strong, yet they prepare their meat in the summer."
+
+>"Till they reached the valley of the ants. Said an ant, 'O ants, enter your dwellings, lest Solomon and his hosts crush you and know it not.' And he smiled, laughing at her words, and said, 'O my Lord, stir me up to be thankful for thy favour wherewith thou hast favoured me and my parents, and to do good works which shall please thee.'"
+
+>"Even the tiny ant is endowed with a sense of cooperation."
+
+>"She became small like an ant among the powers."
+
+>"When the ants unite, they can lift an elephant."
+
+>"Look, children &emdash; the ants are bringing the chrysanthemum home."
