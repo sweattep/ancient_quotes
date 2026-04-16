@@ -4,6 +4,8 @@
 
 >as long as they are upright toward you, be upright toward them
 
+>How long can your servant stay alive?
+
 >our command you did not know
 
 >Preach an acceptable year
