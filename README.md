@@ -331,6 +331,8 @@ the mortally wounded are crying for help
 
 >your Lord inspired to the bee
 
+>How long am I to put up with this evil community who keep grumbling about me?
+>
 >We inspired to them the doing of good deeds, establishment of prayer, and giving of zakah; and they were worshippers of Us.
 
 >If a traveler does not meet with one who is his better, or his equal, let him firmly keep to his solitary journey; there is no companionship with fools. Long is the night to him who is awake; long is a mile to him who is tired; long is life to the foolish who do not know the true religion. Better than living a hundred years not seeing the highest truth, is one day in the life of a man who sees the highest truth.
