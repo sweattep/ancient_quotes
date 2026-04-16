@@ -24,6 +24,8 @@
 
 >Small wind, big waves
 
+>But now, when will I provide for my own household?
+
 >And do not obey every worthless habitual swearer
 
 >who acquit the guilty for a bribe, but deny justice for the innocent
