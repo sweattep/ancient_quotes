@@ -1413,3 +1413,5 @@ will shine like the brightness of the heavens, and those who lead many to righte
 >"When the ants unite, they can lift an elephant."
 
 >"Look, children &emdash; the ants are bringing the chrysanthemum home."
+
+>the vngodly is trapped in ye worke of his owne handes, this ought to be considered alwayes. Selah.
